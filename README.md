@@ -49,6 +49,8 @@ Fonte: Toro Candil: tradição de uma fronteira ambivalente. Giselda Paula Tedes
 
 ![Las Promesseras A3 Of 2021 010 Ricardo Camara](https://user-images.githubusercontent.com/76437195/104878523-80425600-5932-11eb-8393-94fe4b7f5bd3.jpg)
 
+![Las Promesseras A3 Of 2021 012 Mario Ruben Alvarez](https://user-images.githubusercontent.com/76437195/104879162-addbcf00-5933-11eb-805b-33d0b26ac8a1.jpg)
+
 ![Las Promesseras A3 Of 2021 013 Cast Ficha Tecnica](https://user-images.githubusercontent.com/76437195/104878538-87696400-5932-11eb-872f-d0118b29b685.jpg)
 
 Dia 8 de dezembro é o dia dedicado a Nossa Senhora de Caacupé, considerada pelos católicos a Santa Padroeira do Paraguai. Anualmente, essa devoção pode ser observada quando caravanas partem de todas as regiões daquele país em direção à cidade de Caacupé. A data também é festejada no Brasil, em Mato Grosso do Sul, principalmente na fronteira com o Paraguai. Em Porto Murtinho, essa devoção é marcada pela presença do Toro Candil.

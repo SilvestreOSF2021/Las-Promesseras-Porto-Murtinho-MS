@@ -13,10 +13,43 @@ No entanto, essa prática, intrínseca à fronteira e condicionada à fé de imi
 Fonte: Toro Candil: tradição de uma fronteira ambivalente. Giselda Paula Tedesco Giberto Luiz Alves. Interações (Campo Grande) vol.19 no.1 Campo Grande Jan./Mar. 2018 https://doi.org/10.20435/inter.v19i1.1622 
 
 
+![Las Promesseras A3 Of 2021 000](https://user-images.githubusercontent.com/76437195/104878234-ef6b7a80-5931-11eb-9955-5c4c077b4b6d.jpg)
 
+![Las Promesseras A3 Of 2021 001 CD Capa](https://user-images.githubusercontent.com/76437195/104878255-f6928880-5931-11eb-955d-efe80741b8a3.jpg)
 
+![Las Promesseras A3 Of 2021 001 SmartPhones](https://user-images.githubusercontent.com/76437195/104878266-fd210000-5931-11eb-8a72-4f864e6d0c15.jpg)
 
+![Las Promesseras A3 Of 2021 002 2015 01 02 A](https://user-images.githubusercontent.com/76437195/104878290-06aa6800-5932-11eb-8d09-ee6df8a786c1.jpg)
 
+![Las Promesseras A3 Of 2021 002 2015 01 02 B](https://user-images.githubusercontent.com/76437195/104878306-0f02a300-5932-11eb-9c0c-c5be6108d9c7.jpg)
+
+![Las Promesseras A3 Of 2021 002 2015 01 Paraguai](https://user-images.githubusercontent.com/76437195/104878327-1c1f9200-5932-11eb-9d21-abdf72bba41d.jpg)
+
+![Las Promesseras A3 Of 2021 002 2015 01](https://user-images.githubusercontent.com/76437195/104878352-25a8fa00-5932-11eb-8aab-1ab03d7cd8b0.jpg)
+
+![Las Promesseras A3 Of 2021 002](https://user-images.githubusercontent.com/76437195/104878371-2fcaf880-5932-11eb-865d-7e46219a6b00.jpg)
+
+![Las Promesseras A3 Of 2021 003 02](https://user-images.githubusercontent.com/76437195/104878382-38233380-5932-11eb-8dda-dd8dfe242220.jpg) 
+
+![Las Promesseras A3 Of 2021 004 Vander](https://user-images.githubusercontent.com/76437195/104878400-42ddc880-5932-11eb-91db-dbccf2513542.jpg)
+
+![Las Promesseras A3 Of 2021 005 Mara 2015](https://user-images.githubusercontent.com/76437195/104878420-496c4000-5932-11eb-949e-d3f61349ff37.jpg)
+
+![Las Promesseras A3 Of 2021 006 Promessera Esmeralda](https://user-images.githubusercontent.com/76437195/104878428-512be480-5932-11eb-99d0-a685b5603bc2.jpg)
+
+![Las Promesseras A3 Of 2021 006 Promessera](https://user-images.githubusercontent.com/76437195/104878439-5721c580-5932-11eb-8253-7b3050a4723c.jpg)
+
+![Las Promesseras A3 Of 2021 007 Reginaldo](https://user-images.githubusercontent.com/76437195/104878454-5f7a0080-5932-11eb-8587-d838f18bd078.jpg)
+
+![Las Promesseras A3 Of 2021 008 Hervento](https://user-images.githubusercontent.com/76437195/104878467-66a10e80-5932-11eb-82b3-6371eb57f7cf.jpg)
+
+![Las Promesseras A3 Of 2021 009 Procissao](https://user-images.githubusercontent.com/76437195/104878485-6dc81c80-5932-11eb-8213-5bd34bbf8edc.jpg)
+
+![Las Promesseras A3 Of 2021 009 Promessera Serafina](https://user-images.githubusercontent.com/76437195/104878513-791b4800-5932-11eb-92c0-8d397245d9f7.jpg)
+
+![Las Promesseras A3 Of 2021 010 Ricardo Camara](https://user-images.githubusercontent.com/76437195/104878523-80425600-5932-11eb-8393-94fe4b7f5bd3.jpg)
+
+![Las Promesseras A3 Of 2021 013 Cast Ficha Tecnica](https://user-images.githubusercontent.com/76437195/104878538-87696400-5932-11eb-872f-d0118b29b685.jpg)
 
 Dia 8 de dezembro é o dia dedicado a Nossa Senhora de Caacupé, considerada pelos católicos a Santa Padroeira do Paraguai. Anualmente, essa devoção pode ser observada quando caravanas partem de todas as regiões daquele país em direção à cidade de Caacupé. A data também é festejada no Brasil, em Mato Grosso do Sul, principalmente na fronteira com o Paraguai. Em Porto Murtinho, essa devoção é marcada pela presença do Toro Candil.
 

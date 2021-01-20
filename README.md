@@ -72,7 +72,7 @@ Dessa forma, todas as festas podem ser definidas como "manifestações e regozij
 
 Fonte: Toro Candil: tradição de uma fronteira ambivalente. Giselda Paula Tedesco Giberto Luiz Alves. Interações (Campo Grande) vol.19 no.1 Campo Grande Jan./Mar. 2018 https://doi.org/10.20435/inter.v19i1.1622 
 
-![Las Promesseras Foto Perfil Facebook](https://user-images.githubusercontent.com/76437195/105112454-738c4200-5a99-11eb-8187-631f6ea77377.jpg)
+![Las Promesseras Foto Perfil Facebook](https://user-images.githubusercontent.com/76437195/105171241-62245380-5af4-11eb-9bd0-498b3fa738b2.jpg)
 
 ![Las Promesseras Foto Capa Facebook](https://user-images.githubusercontent.com/76437195/105112467-7b4be680-5a99-11eb-8027-13498de27655.jpg) 
 

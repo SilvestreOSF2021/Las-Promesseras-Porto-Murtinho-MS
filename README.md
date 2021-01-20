@@ -12,7 +12,6 @@ No entanto, essa prática, intrínseca à fronteira e condicionada à fé de imi
 
 Fonte: Toro Candil: tradição de uma fronteira ambivalente. Giselda Paula Tedesco Giberto Luiz Alves. Interações (Campo Grande) vol.19 no.1 Campo Grande Jan./Mar. 2018 https://doi.org/10.20435/inter.v19i1.1622 
 
-
 ![Las Promesseras A3 Of 2021 000](https://user-images.githubusercontent.com/76437195/104878234-ef6b7a80-5931-11eb-9955-5c4c077b4b6d.jpg)
 
 ![Las Promesseras A3 Of 2021 001 CD Capa](https://user-images.githubusercontent.com/76437195/104878255-f6928880-5931-11eb-955d-efe80741b8a3.jpg)
@@ -82,3 +81,5 @@ Fonte: Toro Candil: tradição de uma fronteira ambivalente. Giselda Paula Tedes
 ![Las Promesseras Foto Perfil Facebook Fundo Escuro](https://user-images.githubusercontent.com/76437195/105113475-66705280-5a9b-11eb-997f-c26647b6814c.jpg) 
 
 ![Las Promesseras Mascara Covid19 Apoio Cultural TembiuHE II](https://user-images.githubusercontent.com/76437195/105167533-38b4f900-5aef-11eb-888d-08f789fd8dfe.jpg)
+
+![Mascara Las Promesseras 2021 04 Cast Ficha Tecnica](https://user-images.githubusercontent.com/76437195/105170632-95b2ae00-5af3-11eb-8662-33cd2638da07.jpg)

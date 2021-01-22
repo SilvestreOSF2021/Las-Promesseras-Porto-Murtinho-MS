@@ -47,9 +47,11 @@ Fonte: Toro Candil: tradição de uma fronteira ambivalente. Giselda Paula Tedes
 ![Las Promesseras A3 Of 2021 009 Promessera Serafina](https://user-images.githubusercontent.com/76437195/104878513-791b4800-5932-11eb-92c0-8d397245d9f7.jpg)
 
 ![Las Promesseras A3 Of 2021 010 Ricardo Camara](https://user-images.githubusercontent.com/76437195/104878523-80425600-5932-11eb-8393-94fe4b7f5bd3.jpg)
-.
+
+
 ![Las Promesseras A3 Of 2021 012 Mario Ruben Alvarez](https://user-images.githubusercontent.com/76437195/104879162-addbcf00-5933-11eb-805b-33d0b26ac8a1.jpg)
-.
+
+
 La vigencia de @LasPromesseras en Murtinho habla del vigor de una cultura popular que no conoce fronteras. La fe sencilla de muchas mujeres que tras implorar un favor de la Virgen de Caacupé cumplen lo prometido a su Madre de modos diversos habla de una espiritualidad que se mantiene viva.
 
 En diciembre de 2018, en #PuertoMurtinho, tuve la oportunidad de vivenciar personalmente la manifestación de fe religiosa de @LasPromesseras. La costumbre del #Paraguay de dar gracias a la #VirgenDeCaacupé por curar una enfermedad que parecía incurable o cumplir un sueño que se presentaba como imposible pasó la frontera y ancló en este puerto. Fue una experiencia rica, gratificante y conmovedora. 

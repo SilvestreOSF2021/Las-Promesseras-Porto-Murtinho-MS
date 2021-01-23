@@ -102,4 +102,10 @@ Fonte: Toro Candil: tradição de uma fronteira ambivalente. Giselda Paula Tedes
 
 ![Mascara Las Promesseras 2021 04 Cast Ficha Tecnica](https://user-images.githubusercontent.com/76437195/105170632-95b2ae00-5af3-11eb-8662-33cd2638da07.jpg)
 
-![Mascara Las Promesseras 2021 03 SmartPhone](https://user-images.githubusercontent.com/76437195/105422408-14097000-5c1a-11eb-9fc1-6dbfb8a57667.jpg)
+![Mascara Las Promesseras 2021 03 SmartPhone](https://user-images.githubusercontent.com/76437195/105422408-14097000-5c1a-11eb-9fc1-6dbfb8a57667.jpg) 
+
+
+## [Divulgacão Tape Nhande Facebook](https://www.facebook.com/tapenandenee)
+
+![Tape Nhande Las Promesseras Mosaicos 05 de 05](https://user-images.githubusercontent.com/76437195/105612289-82247300-5d91-11eb-950d-51b914531abe.jpg)
+

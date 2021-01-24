@@ -48,7 +48,6 @@ Fonte: Toro Candil: tradição de uma fronteira ambivalente. Giselda Paula Tedes
 
 ![Las Promesseras A3 Of 2021 010 Ricardo Camara](https://user-images.githubusercontent.com/76437195/104878523-80425600-5932-11eb-8393-94fe4b7f5bd3.jpg)
 
-
 ![Las Promesseras A3 Of 2021 012 Mario Ruben Alvarez](https://user-images.githubusercontent.com/76437195/104879162-addbcf00-5933-11eb-805b-33d0b26ac8a1.jpg)
 
 
@@ -107,5 +106,8 @@ Fonte: Toro Candil: tradição de uma fronteira ambivalente. Giselda Paula Tedes
 
 ## [Divulgacão Tape Nhande Facebook](https://www.facebook.com/tapenandenee)
 
-![Tape Nhande Las Promesseras Mosaicos 05 de 05](https://user-images.githubusercontent.com/76437195/105612289-82247300-5d91-11eb-950d-51b914531abe.jpg)
+![Tape Nhande Las Promesseras Mosaicos 05 de 05](https://user-images.githubusercontent.com/76437195/105612289-82247300-5d91-11eb-950d-51b914531abe.jpg) 
+
+![Las Promesseras A3 Of 2021 013 Cast Ficha Tecnica]
+(https://user-images.githubusercontent.com/76437195/104878538-87696400-5932-11eb-872f-d0118b29b685.jpg)
 

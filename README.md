@@ -136,27 +136,24 @@ https://www.facebook.com/laspromesseras.mara.silvestre/posts/103174408444274
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1330184667336552
 
 
-(II) ......................📽💃 no encantamento de
-Las Promesseras nesta tarde, cruzando as fronteiras, a  Intendiente Mirna Orrego Segovia de Carmelo Peralta ~ na agenda do lançamento do Documentário
-#ORioQueSeparaNosUne 🌅
-#LasPromesseras 📽💃
-#PortoMurtinho #RotaBioceânica #RutaBioceanica #Intercultural #IslaMargarita #CarmeloPeralta #PantanalSul #GranChaco 
+(II) ......................📽💃 no encantamento de Las Promesseras nesta tarde, cruzando as fronteiras, a  Intendiente Mirna Orrego Segovia de Carmelo Peralta ~ na agenda do lançamento do Documentário #ORioQueSeparaNosUne 🌅 #LasPromesseras 📽💃 #PortoMurtinho #RotaBioceânica #RutaBioceanica #Intercultural #IslaMargarita #CarmeloPeralta #PantanalSul #GranChaco 
 
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1330202624001423
 
 
-(III) 🎇a festejar a mulher paraguaia e o  processo sócio Cultural fronteiriço no lançamento do documentário #LasPromesseras 📽💃 
-nesta tarde com a Intendiente Mirna Orrego Segovia em lá  Municipalidad de Carmelo Peralta e sua programação 📽💃🎬
-#ORioQueSeparaNosUne🌅
-#PortoMurtinho #RotaBioceânica #RutaBioceanica #Intercultural #IslaMargarita #CarmeloPeralta #PantanalSul #GranChaco 
+(III) 🎇a festejar a mulher paraguaia e o  processo sócio Cultural fronteiriço no lançamento do documentário #LasPromesseras 📽💃 nesta tarde com a Intendiente Mirna Orrego Segovia em lá  Municipalidad de Carmelo Peralta e sua programação 📽💃🎬 #ORioQueSeparaNosUne🌅 #PortoMurtinho #RotaBioceânica #RutaBioceanica #Intercultural #IslaMargarita #CarmeloPeralta #PantanalSul #GranChaco 
 
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1330278430660509
 
 
-(IV) Hj o dia foi muito especial feliz e de emoções!! Visitando a Intendente Municipal de Carmelo Peralta-Py Sra. Mirna Orrego Segovia na companhia da minha irmã Mara Silvestre para a divulgação do seu mais novo trabalho " Las Promesseras Mara Silvestre ". Viva Porto Murtinho!! Viva Carmelo Peralta!! Viva o Brasil !! Viva o Paraguay!! Viva o Corredor Bioceânico !! Viva a integração!!
-— a sentir-se alegre em Carmelo Peralta.
+(IV) Hj o dia foi muito especial feliz e de emoções!! Visitando a Intendente Municipal de Carmelo Peralta-Py Sra. Mirna Orrego Segovia na companhia da minha irmã Mara Silvestre para a divulgação do seu mais novo trabalho " Las Promesseras Mara Silvestre ". Viva Porto Murtinho!! Viva Carmelo Peralta!! Viva o Brasil !! Viva o Paraguay!! Viva o Corredor Bioceânico !! Viva a integração!! — a sentir-se alegre em Carmelo Peralta.
 
-https://www.facebook.com/photo?fbid=3716517021766328&set=a.1101540683263988 
+https://www.facebook.com/photo?fbid=3716517021766328&set=a.1101540683263988  
+
+
+(V) 📽💃 ... chancelando a programação do lançamento do Documentário Las Promesseras Mara Silvestre  no Consulado de lá República del Paraguay Porto Murtinho Brasil com a diplomacia do Cónsul Paraguayo @Luis Gómez Sosa 
+
+ https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1331409107214108
 
 
 

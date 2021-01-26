@@ -108,7 +108,9 @@ Fonte: Toro Candil: tradição de uma fronteira ambivalente. Giselda Paula Tedes
 ![Tape Nhande Las Promesseras Mosaicos 05 de 05](https://user-images.githubusercontent.com/76437195/105612289-82247300-5d91-11eb-950d-51b914531abe.jpg) 
 
 ![Las Promesseras A3 Of 2021 013 Cast Ficha Tecnica]
-(https://user-images.githubusercontent.com/76437195/104878538-87696400-5932-11eb-872f-d0118b29b685.jpg)
+(https://user-images.githubusercontent.com/76437195/104878538-87696400-5932-11eb-872f-d0118b29b685.jpg) 
+
+![Tape Nhande Las Promesseras Mosaicos 2021 01 25 Nelson Cintra Mirna Segovia](https://user-images.githubusercontent.com/76437195/105786256-138f1300-5f53-11eb-87b9-f2fabe8d5be8.jpg)
 
 ## Postagem Perfil Facebook Las Promesseras
 

@@ -156,7 +156,17 @@ https://www.facebook.com/photo?fbid=3716517021766328&set=a.1101540683263988
  https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1331409107214108
 
 
+(VI) nesta tarde, em reunião estratégica na Sectur PM ~  na estrutura o lançamento do Doc  #LasPromesseras  um curta-metragem do contexto Cultural de Porto Murtinho  com Gilka Netto Annie Diaz e toda sua programação #LeiAldirBlanc #PortoMurtinho 
 
+https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1331726817182337
+
+(VII) ao reconhecer sua "virgencita" a promesseira Norberta Martinez  - D. Louve como é carinhosamente chamada, se emociona e se prepara para o lançamento do documentário Las Promesseras Mara Silvestre  
+
+https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1331754577179561
+
+(VIII) e os causos da promesseira D. Louve,  Norberta Martinez segue para vários episódios,   🎬 no entusiasmo se prepara na expectativa das amigas promesseiras no documentário Las Promesseras Mara Silvestre trechos de história de uma vida retratada em registro. Viva las promesseras!!
+
+https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1331762157178803 
 
 
 

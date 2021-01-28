@@ -168,6 +168,20 @@ https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1331754577179561
 
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1331762157178803 
 
+(IX) ... na devoção da promesseira Esmeralda da Silva de Oliveira, a mestiçagem fronteiriça cruzando as fronteiras 🚣‍♀️🚣‍♂️🔥🌅✨e  toda sua manifestação Cultural Popular no  andor de sua morada 
 
+https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1332381463783539
+
+(X)  
+
+(XI) 
+
+(XII)  
+
+(XIII) 
+
+(XIV) 
+
+(XV) 
 
 

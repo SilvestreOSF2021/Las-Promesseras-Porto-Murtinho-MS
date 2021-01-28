@@ -184,10 +184,23 @@ https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1332526597102359
 
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1332533797101639 
 
-(XIII) 
+(XIII) 🙏🌀 elas rezavam em Guaraní suas devoções, 🙏🌀 a promesseira  rezadeira Dona Felipa Talavera, mantém seu trido na sua raiz guaraní - idioma fluente entre elas 
+em margens fronteiriças. 🚣‍♂️🚣‍♀️   Sorridente e em oração, aguarda sua participação no  Doc Las Promesseras Mara Silvestre 📽💃 #ORioQueSeparaNosUne 🌅 #FestivalToroCandil 🔥🎇✨ #LasPromesseras 📽💃
+
+https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1332562883765397 
 
 (XIV) 
 
 (XV) 
 
+(XVI)
 
+(XVII)
+
+(XVIII)
+
+(XIX)
+
+(XX)
+
+(XXI)

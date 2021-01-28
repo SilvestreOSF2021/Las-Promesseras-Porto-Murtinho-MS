@@ -180,7 +180,9 @@ https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1332505187104500
 
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1332526597102359
 
-(XII)  
+(XII) ... é de uma intimidade tão doce na devoção, que é uma alegria em luz estar com elas!! Damasia Sanches, promesseira e personagem real no documentário na expectativa 📽💃 Las Promesseras Mara Silvestre 📽💃 #ORioQueSeparaNosUne 🌅 #FestivalToroCandil 🔥🎇✨ #LasPromesseras 📽💃
+
+https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1332533797101639 
 
 (XIII) 
 

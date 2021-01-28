@@ -172,7 +172,9 @@ https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1331762157178803
 
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1332381463783539
 
-(X)  
+(X) "en bajo de la enramada,  salen las galoperas"🎶🎶 me contava nesta tarde suas memórias de infância fronteiriça, a promesseira Ignacia Britez Soler 📽💃 que atenciosamente apreciava os encartes da sua participação com um canto ungido no doc Las Promesseras
+
+https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1332505187104500 
 
 (XI) 
 

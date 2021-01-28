@@ -176,7 +176,9 @@ https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1332381463783539
 
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1332505187104500 
 
-(XI) 
+(XI) na pureza do encantamento, a promesseira Damasia Sanches, rememora seu momento de devoção na  manifestação Cultural popular do seu envolvimento,  no Doc Las Promesseras
+
+https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1332526597102359
 
 (XII)  
 

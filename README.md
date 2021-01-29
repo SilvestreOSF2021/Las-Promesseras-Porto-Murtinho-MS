@@ -219,7 +219,10 @@ https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1332605173761168
 
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1333097013711984 
 
-(XVIII)
+(XVIII) ... 🙌🏾 recebendo a sagrada benção de "São José " pelo pároco de Porto Murtinho #PdMatheus #ficapadrematheus 🕯🙏🕯 na programação do lançamento do Doc
+Las Promesseras Mara Silvestre  📽💃 ... registo da cultura religiosidade popular e suas viventes #LasPromesseras 🙏🕯🙏
+
+https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1333795963642089
 
 (XIX)
 

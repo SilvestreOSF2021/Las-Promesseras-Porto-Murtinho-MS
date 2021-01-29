@@ -189,9 +189,14 @@ em margens fronteiriças. 🚣‍♂️🚣‍♀️   Sorridente e em oração,
 
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1332562883765397 
 
-(XIV) 
+(XIV) sempre vou venerar "a virgencita" e manter portas abertas da capelinha para a tradição da devoção em oração 🌿🙏🌿 no idioma  guarani a promesseira 📽💃
+Felipa Talavera é personagem real do documentário Las Promesseras Mara Silvestre  #ORioQueSeparaNosUne 🌅 #FestivalToroCandil 🔥🎇✨ #LasPromesseras 📽💃
 
-(XV) 
+https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1332575320430820 
+
+(XV) 📽💃 a promesseira Florence Jara e o matriarcado das "virgencitas" ao longo do tempo da familia; a elas em cantoria 🎶🙏🎶 ela festeja a devoção familiar na manifestação dos festejos da religiosidade,  é personagem real do documentário 🎬 Las Promesseras Mara Silvestre 📽💃 #ORioQueSeparaNosUne 🌅
+
+https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1332589950429357 
 
 (XVI)
 

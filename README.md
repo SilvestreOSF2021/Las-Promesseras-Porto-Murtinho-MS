@@ -198,9 +198,13 @@ https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1332575320430820
 
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1332589950429357 
 
-(XVI)
+(XVI) ...🕯🌿🕯 de geração a geração todos seguem participando; 🌀na memória a promesseira Ignacia Britez Soler trás os festejos da devoção, compartilhada no Doc Las Promesseras Mara Silvestre 📽💃 na família, toda a expectativa do lançamento, na personagem real da matriarca 🌳🏡🌳 #ORioQueSeparaNosUne 🌅 #FestivalToroCandil 🔥🎇✨ #LasPromesseras 📽💃
 
-(XVII)
+https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1332605173761168
+
+(XVII) ... 🌀🌿🌀 na contemplação de suas plantas, no cantinho da  sua casa🏡 ~  a  promesseira Dona Canta - encanta a todos com sua devoção em oração na capelinha da sua "virgencita", visitada pela comunidade 🙏🌅 Las Promesseras Mara Silvestre  📽💃 #ORioQueSeparaNosUne 🌅 #FestivalToroCandil 🔥🎇✨ #LasPromesseras 📽💃
+
+https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1333097013711984 
 
 (XVIII)
 

@@ -224,8 +224,13 @@ Las Promesseras Mara Silvestre  📽💃 ... registo da cultura religiosidade po
 
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1333795963642089
 
-(XIX)
+(XIX) ... 🙌🏾🙏🙌🏾 dia de "graça" na benção de São José,  aos fiéis da comunidade pelo Pd. Matheus em visita hj à programação do lançamento do documentário e sua 
+história de devoção fronteiriça 🚣‍♀️🙏🚣‍♂️ Las Promesseras Mara Silvestre 📽💃 #ORioQueSeparaNosUne 🌅 #FestivalToroCandil 🔥🎇✨ #LasPromesseras 📽💃
 
-(XX)
+https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1333879463633739
+
+(XX) 📽💃 Serafina Maciel ~ promesseira e personagem real do documentário, com seu depoimento cheia de fé na tradição🕯🙏🕯 aguarda com expectativa o lançamento Las Promesseras Mara Silvestre 📽💃 #ORioQueSeparaNosUne 🌅 #FestivalToroCandil 🔥🎇✨ #LasPromesseras 📽💃 
+
+https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1333995646955454 
 
 (XXI)

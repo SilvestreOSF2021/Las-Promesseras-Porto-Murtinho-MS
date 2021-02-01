@@ -127,18 +127,21 @@ https://www.facebook.com/tapenandenee/posts/234014774985272
  
 ## Postagem Perfil Facebook Las Promesseras
 
-Las Promesseras Mara Silvestre atualizou a sua foto de capa
+#### Las Promesseras Mara Silvestre atualizou a sua foto de capa
 
 https://www.facebook.com/laspromesseras.mara.silvestre/posts/103172745111107
 
-Las Promesseras Mara Silvestre atualizou a sua foto de perfil
+#### Las Promesseras Mara Silvestre atualizou a sua foto de perfil
 
 https://www.facebook.com/laspromesseras.mara.silvestre/posts/103173938444321:0 
 
-Las Promesseras A3 Of 2021 013 Cast Ficha Tecnica 
+#### Las Promesseras A3 Of 2021 013 Cast Ficha Tecnica 
 
-https://www.facebook.com/laspromesseras.mara.silvestre/posts/103174408444274
+https://www.facebook.com/laspromesseras.mara.silvestre/posts/103174408444274 
 
+#### Las Promesseras Mara Silvestre 21 Banners da Divulgação do Pré Lançamento
+
+https://www.facebook.com/LasPromesseras/posts/109239334496882
 
 ## Postagem Perfil Facebook Mara e Myrian Silvestre
 

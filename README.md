@@ -253,8 +253,22 @@ Banners da Divulgação do Pré Lançamento do #Doc Las Promesseras Mara Silvest
 "A tradição das #Promesseras representa um forte laço cultural entre Brasil e Paraguai. A irmandade entre os dois países permanece viva e abraçada pelo povo fronteiriço. A #Fé das senhoras que guardaram esse ritual é um tesouro das duas nações." Ricardo Câmara (Doutor em Humanidades) Banners da Divulgação do Pré Lançamento do #Doc Las Promesseras Mara Silvestre (#AguaComTV 2020). Uma Atividade Cultural do #CorredorBioceanico do #FestivalToroCandil #oRioQueSeparaNosUne #MaraSilvestre #ToroCandil #LasPromesseras #PortoMurtinho #CarmeloPeralta #PantanalSUL #ChacoParaguayo #Pantanal #Chaco #RioParaguay ~> https://www.facebook.com/LasPromesseras/posts/110158111071671 
 
 
+![Las Promesseras 02 02 2021 01](https://user-images.githubusercontent.com/76437195/106561889-e49f1100-64ff-11eb-8aa8-e9e492f3f649.jpg)
 
+![Las Promesseras 02 02 2021 02](https://user-images.githubusercontent.com/76437195/106561917-eec10f80-64ff-11eb-9b8e-6175aa7b8a72.jpg)
 
+![Las Promesseras 02 02 2021 03](https://user-images.githubusercontent.com/76437195/106561945-f7194a80-64ff-11eb-86a0-1d42cd425c2a.jpg)
+
+![Las Promesseras 02 02 2021 04](https://user-images.githubusercontent.com/76437195/106561972-026c7600-6500-11eb-90ad-68a48a6f60ae.jpg)
+
+![Las Promesseras 02 02 2021 05](https://user-images.githubusercontent.com/76437195/106561998-0e583800-6500-11eb-9d91-7a5f596ebde6.jpg) 
+
+![Las Promesseras 02 02 2021 06](https://user-images.githubusercontent.com/76437195/106562033-17e1a000-6500-11eb-8cf2-9cbc384ae9c9.jpg)
+
+![Las Promesseras 02 02 2021 07](https://user-images.githubusercontent.com/76437195/106562060-229c3500-6500-11eb-87f6-359114c92474.jpg)
+ 
+ 
+...
 
 
 

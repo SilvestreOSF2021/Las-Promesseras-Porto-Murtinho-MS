@@ -281,7 +281,18 @@ Banners da Divulgação do Pré Lançamento do #Doc Las Promesseras Mara Silvest
 
 ![Las Promesseras 02 02 2021 14](https://user-images.githubusercontent.com/76437195/106562443-ae15c600-6500-11eb-86a6-f6121f80f24b.jpg) 
 
-...
+![Las Promesseras 02 02 2021 15](https://user-images.githubusercontent.com/76437195/106562635-f3d28e80-6500-11eb-8394-878fded66ceb.jpg) 
+
+![Las Promesseras 02 02 2021 16](https://user-images.githubusercontent.com/76437195/106562659-fcc36000-6500-11eb-911e-838f1a866c62.jpg)
+
+![Las Promesseras 02 02 2021 17](https://user-images.githubusercontent.com/76437195/106562669-03ea6e00-6501-11eb-8d8d-3d3522ddd029.jpg) 
+
+![Las Promesseras 02 02 2021 18](https://user-images.githubusercontent.com/76437195/106562692-0c42a900-6501-11eb-9646-72238ecebf40.jpg)
+
+![Las Promesseras 02 02 2021 19](https://user-images.githubusercontent.com/76437195/106562703-1369b700-6501-11eb-8268-656e24c78302.jpg) 
+
+![Las Promesseras 02 02 2021 20](https://user-images.githubusercontent.com/76437195/106562727-1b295b80-6501-11eb-9a71-ae7fe40b3687.jpg)
+
 
 
 

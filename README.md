@@ -237,3 +237,17 @@ https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1333879463633739
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1333995646955454 
 
 (XXI)
+
+## Las Promesseras PAGE
+
+Como Apoio Cultural, divulgamos as Postagens do Pré Lançamento  do #Doc Las Promesseras Direção Mara Silvestre (#AguaComTV 2020) integrante do Festival Toro Candil como #AtividadeCultural do #CorredorBioceânico: Banners da Divulgação do Pré Lançamento Projeto #LeiAldirBlanc #PMPM #FCMS ~> #SecturPM / Fundação de Cultura de Mato Grosso do Sul / Prefeitura Municipal de Porto Murtinho / #GovMS #ToroCandil #MaraSilvestre #oRioQueSeparaNosUne #FestivalToroCandil #LasPromesseras #PortoMurtinho #CarmeloPeralta #PantanalSUL #ChacoParaguayo #Pantanal 
+
+Banners da Divulgação do Pré Lançamento do #Doc Las Promesseras ~> https://www.facebook.com/LasPromesseras/posts/109239334496882 
+
+
+
+Banners da Divulgação do Pré Lançamento do #Doc Las Promesseras Mara Silvestre (#AguaComTV 2020). Uma Atividade Cultural do #CorredorBioceanico do #FestivalToroCandil (Toro Candil 2021) ~> https://www.facebook.com/laspromesseras.mara.silvestre/posts/109388811156167
+
+
+
+...

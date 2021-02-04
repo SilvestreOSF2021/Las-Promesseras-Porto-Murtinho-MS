@@ -147,6 +147,19 @@ https://www.facebook.com/LasPromesseras/posts/109239334496882
 
 (I) 🚣‍♀️🚣‍♂️ margeando a Rota Bioceânica da Integração ~ CRIANDOPONTES na  comunicação fronteiriça  do Documentário  Las Promesseras 📽💃 em visita a municipalidad Carmelo Peralta 
 #ORioQueSeparaNosUne🌅   #LasPromesseras📽💃  #PortoMurtinho  #Intercultural #CarmeloPeralta #IslaMargarita 
+
+## Pasta 02 Doc Las Promesseras
+
+Apoio Cultural na Divulgação do Pré Lançamento do #Doc #LasPromesseras #MaraSilvestre  (#LasPromesseras #AguaComTV 2020). Uma Atividade Cultural do #CorredorBioceanico do #FestivalToroCandil (#ToroCandil 2021) 
+
+#### Las Promesseras 03 02  2021
+![Las Promesseras 03 02  2021](https://user-images.githubusercontent.com/76437195/106887162-27591880-66bb-11eb-8fef-87ebd565035f.jpg)
+
+#### Las Promesseras 04 02  2021
+![Las Promesseras 04 02  2021](https://user-images.githubusercontent.com/76437195/106887191-3049ea00-66bb-11eb-8e0b-185bba6c385c.jpg)
+
+#### Tape Nhande 04 02  2021
+![Tape Nhande 2021 02 04](https://user-images.githubusercontent.com/76437195/106887224-3b9d1580-66bb-11eb-834d-464c93079991.jpg)
 #PantanalSul  #GranChaco
 
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1330184667336552

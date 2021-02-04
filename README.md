@@ -50,7 +50,6 @@ Fonte: Toro Candil: tradição de uma fronteira ambivalente. Giselda Paula Tedes
 
 ![Las Promesseras A3 Of 2021 012 Mario Ruben Alvarez](https://user-images.githubusercontent.com/76437195/104879162-addbcf00-5933-11eb-805b-33d0b26ac8a1.jpg)
 
-
 La vigencia de @LasPromesseras en Murtinho habla del vigor de una cultura popular que no conoce fronteras. La fe sencilla de muchas mujeres que tras implorar un favor de la Virgen de Caacupé cumplen lo prometido a su Madre de modos diversos habla de una espiritualidad que se mantiene viva.
 
 En diciembre de 2018, en #PuertoMurtinho, tuve la oportunidad de vivenciar personalmente la manifestación de fe religiosa de @LasPromesseras. La costumbre del #Paraguay de dar gracias a la #VirgenDeCaacupé por curar una enfermedad que parecía incurable o cumplir un sueño que se presentaba como imposible pasó la frontera y ancló en este puerto. Fue una experiencia rica, gratificante y conmovedora. 
@@ -63,11 +62,50 @@ Celebro que se mantenga y valore esta tradición que expresa parte del Ñande Re
 
 ![Las Promesseras A3 Of 2021 013 Cast Ficha Tecnica](https://user-images.githubusercontent.com/76437195/104878538-87696400-5932-11eb-872f-d0118b29b685.jpg)
 
-Toro Candil (#ToroCandil) 
-#oRioQueSeparaNosUne Mara Silvestre
-#FestivalToroCandil #LasPromesseras 
-#PortoMurtinho #CarmeloPeralta 
-#PantanalSUL #ChacoParaguayo #Pantanal
+Toro Candil (#ToroCandil) #oRioQueSeparaNosUne Mara Silvestre #FestivalToroCandil #LasPromesseras #PortoMurtinho #CarmeloPeralta #PantanalSUL #ChacoParaguayo #Pantanal
+
+"A tradição das #Promesseras representa um forte laço cultural entre Brasil e Paraguai. A irmandade entre os dois países permanece viva e abraçada pelo povo fronteiriço. A #Fé das senhoras que guardaram esse ritual é um tesouro das duas nações." Ricardo Câmara (Doutor em Humanidades) Banners da Divulgação do Pré Lançamento do #Doc Las Promesseras Mara Silvestre (#AguaComTV 2020). Uma Atividade Cultural do #CorredorBioceanico do #FestivalToroCandil #oRioQueSeparaNosUne #MaraSilvestre #ToroCandil #LasPromesseras #PortoMurtinho #CarmeloPeralta #PantanalSUL #ChacoParaguayo #Pantanal #Chaco #RioParaguay ~> https://www.facebook.com/LasPromesseras/posts/110158111071671 
+
+
+![Las Promesseras 02 02 2021 01](https://user-images.githubusercontent.com/76437195/106561889-e49f1100-64ff-11eb-8aa8-e9e492f3f649.jpg)
+
+![Las Promesseras 02 02 2021 02](https://user-images.githubusercontent.com/76437195/106561917-eec10f80-64ff-11eb-9b8e-6175aa7b8a72.jpg)
+
+![Las Promesseras 02 02 2021 03](https://user-images.githubusercontent.com/76437195/106561945-f7194a80-64ff-11eb-86a0-1d42cd425c2a.jpg)
+
+![Las Promesseras 02 02 2021 04](https://user-images.githubusercontent.com/76437195/106561972-026c7600-6500-11eb-90ad-68a48a6f60ae.jpg)
+
+![Las Promesseras 02 02 2021 05](https://user-images.githubusercontent.com/76437195/106561998-0e583800-6500-11eb-9d91-7a5f596ebde6.jpg) 
+
+![Las Promesseras 02 02 2021 06](https://user-images.githubusercontent.com/76437195/106562033-17e1a000-6500-11eb-8cf2-9cbc384ae9c9.jpg)
+
+![Las Promesseras 02 02 2021 07](https://user-images.githubusercontent.com/76437195/106562060-229c3500-6500-11eb-87f6-359114c92474.jpg)
+ 
+ ![Las Promesseras 02 02 2021 08](https://user-images.githubusercontent.com/76437195/106562262-73139280-6500-11eb-8cb5-f55560d06c62.jpg)
+
+![Las Promesseras 02 02 2021 09](https://user-images.githubusercontent.com/76437195/106562288-7c046400-6500-11eb-893a-81c8dcb3a6c3.jpg)
+
+![Las Promesseras 02 02 2021 10](https://user-images.githubusercontent.com/76437195/106562305-83c40880-6500-11eb-8d18-5de6390c868d.jpg) 
+
+![Las Promesseras 02 02 2021 11](https://user-images.githubusercontent.com/76437195/106562343-8d4d7080-6500-11eb-8edc-79c23ca7c02a.jpg)
+
+![Las Promesseras 02 02 2021 12](https://user-images.githubusercontent.com/76437195/106562378-98080580-6500-11eb-9d9b-92e0e372521d.jpg)
+
+![Las Promesseras 02 02 2021 13](https://user-images.githubusercontent.com/76437195/106562403-a0604080-6500-11eb-9cae-31bbda2addc5.jpg)
+
+![Las Promesseras 02 02 2021 14](https://user-images.githubusercontent.com/76437195/106562443-ae15c600-6500-11eb-86a6-f6121f80f24b.jpg) 
+
+![Las Promesseras 02 02 2021 15](https://user-images.githubusercontent.com/76437195/106562635-f3d28e80-6500-11eb-8394-878fded66ceb.jpg) 
+
+![Las Promesseras 02 02 2021 16](https://user-images.githubusercontent.com/76437195/106562659-fcc36000-6500-11eb-911e-838f1a866c62.jpg)
+
+![Las Promesseras 02 02 2021 17](https://user-images.githubusercontent.com/76437195/106562669-03ea6e00-6501-11eb-8d8d-3d3522ddd029.jpg) 
+
+![Las Promesseras 02 02 2021 18](https://user-images.githubusercontent.com/76437195/106562692-0c42a900-6501-11eb-9646-72238ecebf40.jpg)
+
+![Las Promesseras 02 02 2021 19](https://user-images.githubusercontent.com/76437195/106562703-1369b700-6501-11eb-8268-656e24c78302.jpg) 
+
+![Las Promesseras 02 02 2021 20](https://user-images.githubusercontent.com/76437195/106562727-1b295b80-6501-11eb-9a71-ae7fe40b3687.jpg)
 
 Dia 8 de dezembro é o dia dedicado a Nossa Senhora de Caacupé, considerada pelos católicos a Santa Padroeira do Paraguai. Anualmente, essa devoção pode ser observada quando caravanas partem de todas as regiões daquele país em direção à cidade de Caacupé. A data também é festejada no Brasil, em Mato Grosso do Sul, principalmente na fronteira com o Paraguai. Em Porto Murtinho, essa devoção é marcada pela presença do Toro Candil.
 
@@ -150,7 +188,7 @@ https://www.facebook.com/LasPromesseras/posts/109239334496882
 
 ## Pasta 02 Doc Las Promesseras
 
-Apoio Cultural na Divulgação do Pré Lançamento do #Doc #LasPromesseras #MaraSilvestre  (#LasPromesseras #AguaComTV 2020). Uma Atividade Cultural do #CorredorBioceanico do #FestivalToroCandil (#ToroCandil 2021) 
+Apoio Cultural na Divulgação do Pré Lançamento do #Doc #LasPromesseras #MaraSilvestre  (#AguaComTV 2020). Uma Atividade Cultural do #CorredorBioceanico do #FestivalToroCandil (#ToroCandil 2021) 
 
 #### Las Promesseras 03 02  2021
 ![Las Promesseras 03 02  2021](https://user-images.githubusercontent.com/76437195/106887162-27591880-66bb-11eb-8fef-87ebd565035f.jpg)
@@ -266,48 +304,6 @@ Banners da Divulgação do Pré Lançamento do #Doc Las Promesseras Mara Silvest
 
 ![Las Promesseras 02 02 2021](https://user-images.githubusercontent.com/76437195/106560369-4e69eb80-64fd-11eb-8c1d-380bc5d3ef60.jpg)
 
-"A tradição das #Promesseras representa um forte laço cultural entre Brasil e Paraguai. A irmandade entre os dois países permanece viva e abraçada pelo povo fronteiriço. A #Fé das senhoras que guardaram esse ritual é um tesouro das duas nações." Ricardo Câmara (Doutor em Humanidades) Banners da Divulgação do Pré Lançamento do #Doc Las Promesseras Mara Silvestre (#AguaComTV 2020). Uma Atividade Cultural do #CorredorBioceanico do #FestivalToroCandil #oRioQueSeparaNosUne #MaraSilvestre #ToroCandil #LasPromesseras #PortoMurtinho #CarmeloPeralta #PantanalSUL #ChacoParaguayo #Pantanal #Chaco #RioParaguay ~> https://www.facebook.com/LasPromesseras/posts/110158111071671 
-
-
-![Las Promesseras 02 02 2021 01](https://user-images.githubusercontent.com/76437195/106561889-e49f1100-64ff-11eb-8aa8-e9e492f3f649.jpg)
-
-![Las Promesseras 02 02 2021 02](https://user-images.githubusercontent.com/76437195/106561917-eec10f80-64ff-11eb-9b8e-6175aa7b8a72.jpg)
-
-![Las Promesseras 02 02 2021 03](https://user-images.githubusercontent.com/76437195/106561945-f7194a80-64ff-11eb-86a0-1d42cd425c2a.jpg)
-
-![Las Promesseras 02 02 2021 04](https://user-images.githubusercontent.com/76437195/106561972-026c7600-6500-11eb-90ad-68a48a6f60ae.jpg)
-
-![Las Promesseras 02 02 2021 05](https://user-images.githubusercontent.com/76437195/106561998-0e583800-6500-11eb-9d91-7a5f596ebde6.jpg) 
-
-![Las Promesseras 02 02 2021 06](https://user-images.githubusercontent.com/76437195/106562033-17e1a000-6500-11eb-8cf2-9cbc384ae9c9.jpg)
-
-![Las Promesseras 02 02 2021 07](https://user-images.githubusercontent.com/76437195/106562060-229c3500-6500-11eb-87f6-359114c92474.jpg)
- 
- ![Las Promesseras 02 02 2021 08](https://user-images.githubusercontent.com/76437195/106562262-73139280-6500-11eb-8cb5-f55560d06c62.jpg)
-
-![Las Promesseras 02 02 2021 09](https://user-images.githubusercontent.com/76437195/106562288-7c046400-6500-11eb-893a-81c8dcb3a6c3.jpg)
-
-![Las Promesseras 02 02 2021 10](https://user-images.githubusercontent.com/76437195/106562305-83c40880-6500-11eb-8d18-5de6390c868d.jpg) 
-
-![Las Promesseras 02 02 2021 11](https://user-images.githubusercontent.com/76437195/106562343-8d4d7080-6500-11eb-8edc-79c23ca7c02a.jpg)
-
-![Las Promesseras 02 02 2021 12](https://user-images.githubusercontent.com/76437195/106562378-98080580-6500-11eb-9d9b-92e0e372521d.jpg)
-
-![Las Promesseras 02 02 2021 13](https://user-images.githubusercontent.com/76437195/106562403-a0604080-6500-11eb-9cae-31bbda2addc5.jpg)
-
-![Las Promesseras 02 02 2021 14](https://user-images.githubusercontent.com/76437195/106562443-ae15c600-6500-11eb-86a6-f6121f80f24b.jpg) 
-
-![Las Promesseras 02 02 2021 15](https://user-images.githubusercontent.com/76437195/106562635-f3d28e80-6500-11eb-8394-878fded66ceb.jpg) 
-
-![Las Promesseras 02 02 2021 16](https://user-images.githubusercontent.com/76437195/106562659-fcc36000-6500-11eb-911e-838f1a866c62.jpg)
-
-![Las Promesseras 02 02 2021 17](https://user-images.githubusercontent.com/76437195/106562669-03ea6e00-6501-11eb-8d8d-3d3522ddd029.jpg) 
-
-![Las Promesseras 02 02 2021 18](https://user-images.githubusercontent.com/76437195/106562692-0c42a900-6501-11eb-9646-72238ecebf40.jpg)
-
-![Las Promesseras 02 02 2021 19](https://user-images.githubusercontent.com/76437195/106562703-1369b700-6501-11eb-8268-656e24c78302.jpg) 
-
-![Las Promesseras 02 02 2021 20](https://user-images.githubusercontent.com/76437195/106562727-1b295b80-6501-11eb-9a71-ae7fe40b3687.jpg)
 
 
 

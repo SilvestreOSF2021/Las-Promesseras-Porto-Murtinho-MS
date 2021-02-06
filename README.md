@@ -334,4 +334,5 @@ Celebro que se mantenga y valore esta tradición que expresa parte del Ñande Re
 
 #MarioRubénAlvarez
 
+## Coluna Fernando Soares 06fev21 
 

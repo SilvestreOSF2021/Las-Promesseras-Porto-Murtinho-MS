@@ -195,18 +195,32 @@ https://www.facebook.com/LasPromesseras/posts/109239334496882
 
 Apoio Cultural na Divulgação do Pré Lançamento do #Doc #LasPromesseras #MaraSilvestre  (#AguaComTV 2020). Uma Atividade Cultural do #CorredorBioceanico do #FestivalToroCandil (#ToroCandil 2021) 
 
-#### Las Promesseras 03 02  2021
+#### Las Promesseras 03 02 2021
 ![Las Promesseras 03 02  2021](https://user-images.githubusercontent.com/76437195/106887162-27591880-66bb-11eb-8fef-87ebd565035f.jpg)
 
-#### Las Promesseras 04 02  2021
+#### Las Promesseras 04 02 2021
 ![Las Promesseras 04 02  2021](https://user-images.githubusercontent.com/76437195/106887191-3049ea00-66bb-11eb-8e0b-185bba6c385c.jpg)
 
-#### Tape Nhande 04 02  2021
+#### Las Promesseras 05 02 2021
+
+![Las Promesseras 05 02 2021](https://user-images.githubusercontent.com/76437195/107103024-91280e00-67f2-11eb-8e13-e1589a20def4.jpg)
+
+#### Tape Nhande 04 02 2021
 ![Tape Nhande 2021 02 04](https://user-images.githubusercontent.com/76437195/106887224-3b9d1580-66bb-11eb-834d-464c93079991.jpg)
 #PantanalSul  #GranChaco
 
-https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1330184667336552
+https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1330184667336552 
 
+#### Tape Nhande 05 02 2021 
+
+![Las Promesseras 05 02 2021 Poeta Manoel de Barros](https://user-images.githubusercontent.com/76437195/107103037-9d13d000-67f2-11eb-9449-997a572fc1d4.jpg)
+
+PoetaManoelDeBarros Carregando água na peneira.
+https://www.facebook.com/tapenandenee/posts/240487671004649 
+
+
+
+(I) 
 
 (II) ......................📽💃 no encantamento de Las Promesseras nesta tarde, cruzando as fronteiras, a  Intendiente Mirna Orrego Segovia de Carmelo Peralta ~ na agenda do lançamento do Documentário #ORioQueSeparaNosUne 🌅 #LasPromesseras 📽💃 #PortoMurtinho #RotaBioceânica #RutaBioceanica #Intercultural #IslaMargarita #CarmeloPeralta #PantanalSul #GranChaco 
 

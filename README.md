@@ -336,3 +336,5 @@ Celebro que se mantenga y valore esta tradición que expresa parte del Ñande Re
 
 ## Coluna Fernando Soares 06fev21 
 
+## Page Poeta Manoel de Barros
+

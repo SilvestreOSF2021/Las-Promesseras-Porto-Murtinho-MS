@@ -117,7 +117,7 @@ Dessa forma, todas as festas podem ser definidas como "manifestações e regozij
 
 Fonte: Toro Candil: tradição de uma fronteira ambivalente. Giselda Paula Tedesco Giberto Luiz Alves. Interações (Campo Grande) vol.19 no.1 Campo Grande Jan./Mar. 2018 https://doi.org/10.20435/inter.v19i1.1622 
 
-## Máscaras COVID 19
+## Máscaras COVID 19 Las Promesseras 2021
 
 ![Mascara COVID19 Las Promesseras 2021](https://user-images.githubusercontent.com/76437195/107437818-f129f780-6b05-11eb-800b-3206be9bf1bf.jpg)
 
@@ -318,10 +318,6 @@ https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1333879463633739
 (XX) 📽💃 Serafina Maciel ~ promesseira e personagem real do documentário, com seu depoimento cheia de fé na tradição🕯🙏🕯 aguarda com expectativa o lançamento Las Promesseras Mara Silvestre 📽💃 #ORioQueSeparaNosUne 🌅 #FestivalToroCandil 🔥🎇✨ #LasPromesseras 📽💃 
 
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1333995646955454 
-
-## Mascara COVID19 Las Promesseras 2021
-
-![Mascara COVID19 Las Promesseras 2021](https://user-images.githubusercontent.com/76437195/106817130-cdba0500-664c-11eb-87d4-164d3234176f.jpg)
 
 
 ## Las Promesseras PAGE

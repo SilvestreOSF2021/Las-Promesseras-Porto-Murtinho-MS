@@ -205,6 +205,12 @@ Apoio Cultural na Divulgação do Pré Lançamento do #Doc #LasPromesseras #Mara
 
 ![Las Promesseras 05 02 2021](https://user-images.githubusercontent.com/76437195/107103024-91280e00-67f2-11eb-8e13-e1589a20def4.jpg)
 
+#### Las Promesseras 06 02 2021
+
+#### Las Promesseras 07 02 2021
+
+#### Las Promesseras 0802 2021
+
 #### Tape Nhande 04 02 2021
 ![Tape Nhande 2021 02 04](https://user-images.githubusercontent.com/76437195/106887224-3b9d1580-66bb-11eb-834d-464c93079991.jpg)
 #PantanalSul  #GranChaco

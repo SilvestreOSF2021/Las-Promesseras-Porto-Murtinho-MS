@@ -117,6 +117,13 @@ Dessa forma, todas as festas podem ser definidas como "manifestações e regozij
 
 Fonte: Toro Candil: tradição de uma fronteira ambivalente. Giselda Paula Tedesco Giberto Luiz Alves. Interações (Campo Grande) vol.19 no.1 Campo Grande Jan./Mar. 2018 https://doi.org/10.20435/inter.v19i1.1622 
 
+## Máscaras COVID 19
+
+![Mascara COVID19 Las Promesseras 2021](https://user-images.githubusercontent.com/76437195/107437818-f129f780-6b05-11eb-800b-3206be9bf1bf.jpg)
+
+![Mascara COVID19 Las Promesseras 2021 II](https://user-images.githubusercontent.com/76437195/107437849-fbe48c80-6b05-11eb-962e-a7899a69e1a2.jpg)
+
+
 ## Arte Visuais e Grafiteiros
 
 As Arte Visuais e Grafiteiros Presentes na Divulgação do Pré Lançamento do #Doc #LasPromesseras #MaraSilvestre  (#AguaComTV 2020). Patricia Helney, Cleir Ávila, Pedro Guilherme, Natacha Figueiredo e Rafael Mareco. Uma Atividade Cultural do #CorredorBioceanico do #FestivalToroCandil (#ToroCandil 2021) ~> https://www.facebook.com/tapenandenee/posts/240210991032317

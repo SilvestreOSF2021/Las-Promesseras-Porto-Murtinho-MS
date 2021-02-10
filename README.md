@@ -165,24 +165,41 @@ As Arte Visuais e Grafiteiros Presentes na Divulgação do Pré Lançamento do #
 
 ![Tape Nhande Las Promesseras Mosaicos 05 de 05](https://user-images.githubusercontent.com/76437195/105612289-82247300-5d91-11eb-950d-51b914531abe.jpg) 
 
-https://www.facebook.com/tapenandenee/posts/230879178632165
+(I Tape Nhande) https://www.facebook.com/tapenandenee/posts/230879178632165
 
 ![Las Promesseras A3 Of 2021 013 Cast Ficha Tecnica]
 (https://user-images.githubusercontent.com/76437195/104878538-87696400-5932-11eb-872f-d0118b29b685.jpg) 
 
-https://www.facebook.com/tapenandenee/posts/232140438506039
+(II Tape Nhande) https://www.facebook.com/tapenandenee/posts/232140438506039
 
 ![Tape Nhande Las Promesseras Mosaicos 2021 01 25 Nelson Cintra Mirna Segovia](https://user-images.githubusercontent.com/76437195/105786256-138f1300-5f53-11eb-87b9-f2fabe8d5be8.jpg)
 
-https://www.facebook.com/tapenandenee/posts/234014774985272 
+(III Tape Nhande) https://www.facebook.com/tapenandenee/posts/234014774985272 
 
 📽💃 ... Chancelando a Programação do Lançamento do Documentário Las Promesseras Mara Silvestre #AguaComTV 2020 no Consulado de lá República del Paraguay Porto Murtinho Brasil com a diplomacia do Cónsul Paraguayo @LuisGómezSosa 🌎 #ORioQueSeparaNosUne 🌅 #FestivalToroCandil 🔥🎇✨ Toro Candil #LasPromesseras 📽💃 
 
 ![Mascara Las Promesseras 2021 07 Consul PY Porto Murtinho](https://user-images.githubusercontent.com/76437195/106215859-3f570680-61a8-11eb-9442-cc8be2b10792.jpg)
  
- https://www.facebook.com/tapenandenee/posts/235432224843527
+ (IV Tape Nhande)https://www.facebook.com/tapenandenee/posts/235432224843527
  
+(V Tape Nhande)
  
+(VI Tape Nhande)
+ 
+(VII Tape Nhande)
+ 
+(VIII Tape Nhande)
+ 
+(IX Tape Nhande)
+
+(X Tape Nhande)
+
+(XI Tape Nhande)
+
+(XII Tape Nhande)
+
+(XIII Tape Nhande)
+
 ## Postagem Perfil Facebook Las Promesseras
 
 #### Las Promesseras Mara Silvestre atualizou a sua foto de capa

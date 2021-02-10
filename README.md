@@ -152,9 +152,8 @@ As Arte Visuais e Grafiteiros Presentes na Divulgação do Pré Lançamento do #
 
 ![Las Promesseras Foto Perfil Facebook Fundo Escuro](https://user-images.githubusercontent.com/76437195/105113475-66705280-5a9b-11eb-997f-c26647b6814c.jpg) 
 
-![Las Promesseras Mascara Covid19 Apoio Cultural TembiuHE II](https://user-images.githubusercontent.com/76437195/105167533-38b4f900-5aef-11eb-888d-08f789fd8dfe.jpg)
-
 ![Mascara Las Promesseras 2021 03 SmartPhone](https://user-images.githubusercontent.com/76437195/105422408-14097000-5c1a-11eb-9fc1-6dbfb8a57667.jpg) 
+
 
 ## [Divulgacão Tape Nhande Facebook](https://www.facebook.com/tapenandenee)
 

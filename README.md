@@ -138,7 +138,6 @@ As Arte Visuais e Grafiteiros Presentes na Divulgação do Pré Lançamento do #
 
 ![Mascara Las Promesseras 2021 Graffiti Mareco](https://user-images.githubusercontent.com/76437195/107038983-b3d70a00-6793-11eb-86e2-527d593de6fe.jpg)
 
-
 ![Las Promesseras Foto Perfil Facebook](https://user-images.githubusercontent.com/76437195/105171241-62245380-5af4-11eb-9bd0-498b3fa738b2.jpg)
 
 ![Las Promesseras Foto Capa Facebook](https://user-images.githubusercontent.com/76437195/105112467-7b4be680-5a99-11eb-8027-13498de27655.jpg) 
@@ -216,7 +215,15 @@ Apoio Cultural na Divulgação do Pré Lançamento do #Doc #LasPromesseras #Mara
 
 #### Las Promesseras 07 02 2021
 
-#### Las Promesseras 0802 2021
+#### Las Promesseras 08 02 2021 
+
+#### Las Promesseras 09 02 2021
+
+#### Las Promesseras 10 02 2021
+
+#### Las Promesseras 11 02 2021 
+
+#### Las Promesseras 12 02 2021
 
 #### Tape Nhande 04 02 2021
 ![Tape Nhande 2021 02 04](https://user-images.githubusercontent.com/76437195/106887224-3b9d1580-66bb-11eb-834d-464c93079991.jpg)

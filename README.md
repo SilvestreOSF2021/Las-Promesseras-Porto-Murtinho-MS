@@ -180,21 +180,28 @@ As Arte Visuais e Grafiteiros Presentes na Divulgação do Pré Lançamento do #
 
 ![Mascara Las Promesseras 2021 07 Consul PY Porto Murtinho](https://user-images.githubusercontent.com/76437195/106215859-3f570680-61a8-11eb-9442-cc8be2b10792.jpg)
  
- (IV Tape Nhande)https://www.facebook.com/tapenandenee/posts/235432224843527
+(IV Tape Nhande)https://www.facebook.com/tapenandenee/posts/235432224843527
  
-(V Tape Nhande)
- 
-(VI Tape Nhande)
- 
-(VII Tape Nhande)
- 
-(VIII Tape Nhande)
- 
-(IX Tape Nhande)
+ 01 fev
+(V Tape Nhande) https://www.facebook.com/tapenandenee/posts/237967914589958
 
-(X Tape Nhande)
+02 fev
+(VI Tape Nhande) https://www.facebook.com/tapenandenee/posts/238577347862348
+ 
+04 fev
+(VII Tape Nhande) https://www.facebook.com/tapenandenee/posts/239517201101696
+ 
+05 fev
+(VIII Tape Nhande) https://www.facebook.com/tapenandenee/posts/240210991032317 
+ 
+06 fev
+(IX Tape Nhande) https://www.facebook.com/tapenandenee/posts/240769550976461
 
-(XI Tape Nhande)
+08 fev
+(X Tape Nhande) https://www.facebook.com/tapenandenee/posts/241891697530913
+
+10 fev
+(XI Tape Nhande) https://www.facebook.com/tapenandenee/posts/243196024067147
 
 (XII Tape Nhande)
 

@@ -213,11 +213,19 @@ Apoio Cultural na Divulgação do Pré Lançamento do #Doc #LasPromesseras #Mara
 
 #### Las Promesseras 06 02 2021
 
+![Las Promesseras 06 02 2021](https://user-images.githubusercontent.com/76437195/107450068-fc3b5280-6b1a-11eb-81e8-05feabbceaac.jpg)
+
 #### Las Promesseras 07 02 2021
+
+![Las Promesseras 07 02 2021](https://user-images.githubusercontent.com/76437195/107450106-0e1cf580-6b1b-11eb-96c8-36bca2d30957.jpg)
 
 #### Las Promesseras 08 02 2021 
 
+![Las Promesseras 08 02 2021](https://user-images.githubusercontent.com/76437195/107450131-15dc9a00-6b1b-11eb-94c4-39aec5bf7852.jpg)
+
 #### Las Promesseras 09 02 2021
+
+![Las Promesseras 09 02 2021](https://user-images.githubusercontent.com/76437195/107450144-1c6b1180-6b1b-11eb-8585-38ea3127b763.jpg)
 
 #### Las Promesseras 10 02 2021
 

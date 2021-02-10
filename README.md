@@ -123,6 +123,14 @@ Fonte: Toro Candil: tradição de uma fronteira ambivalente. Giselda Paula Tedes
 
 ![Mascara COVID19 Las Promesseras 2021 II](https://user-images.githubusercontent.com/76437195/107437849-fbe48c80-6b05-11eb-962e-a7899a69e1a2.jpg)
 
+## Camisetas Oficiais I, II e III
+
+#### Camiseta Oficiais I
+
+#### Camiseta Oficiais II
+
+#### Camiseta Oficiais III
+
 
 ## Arte Visuais e Grafiteiros
 

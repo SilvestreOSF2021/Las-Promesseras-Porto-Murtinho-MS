@@ -150,13 +150,9 @@ As Arte Visuais e Grafiteiros Presentes na Divulgação do Pré Lançamento do #
 
 ![Las Promesseras Foto Capa Facebook](https://user-images.githubusercontent.com/76437195/105112467-7b4be680-5a99-11eb-8027-13498de27655.jpg) 
 
-![Mascara Las Promesseras 2021 03 SmartPhone](https://user-images.githubusercontent.com/76437195/105112488-87d03f00-5a99-11eb-8e3a-73ac2763197b.jpg)
-
 ![Las Promesseras Foto Perfil Facebook Fundo Escuro](https://user-images.githubusercontent.com/76437195/105113475-66705280-5a9b-11eb-997f-c26647b6814c.jpg) 
 
 ![Las Promesseras Mascara Covid19 Apoio Cultural TembiuHE II](https://user-images.githubusercontent.com/76437195/105167533-38b4f900-5aef-11eb-888d-08f789fd8dfe.jpg)
-
-![Mascara Las Promesseras 2021 04 Cast Ficha Tecnica](https://user-images.githubusercontent.com/76437195/105170632-95b2ae00-5af3-11eb-8662-33cd2638da07.jpg)
 
 ![Mascara Las Promesseras 2021 03 SmartPhone](https://user-images.githubusercontent.com/76437195/105422408-14097000-5c1a-11eb-9fc1-6dbfb8a57667.jpg) 
 

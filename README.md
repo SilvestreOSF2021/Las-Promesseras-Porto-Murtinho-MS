@@ -280,10 +280,7 @@ Apoio Cultural na Divulgação do Pré Lançamento do #Doc #LasPromesseras #Mara
 
 #### Las Promesseras 10 02 2021 
 
-![Las Promesseras 10 02 2021](https://user-images.githubusercontent.com/76437195/107637816-183b1300-6c45-11eb-82cf-8c248ad67683.jpg)
-
 ![Las Promesseras 10 02 2021](https://user-images.githubusercontent.com/76437195/107639588-75d05f00-6c47-11eb-9be0-6c3e0fc4aad2.jpg)
-
 
 #### Las Promesseras 11 02 2021
 
@@ -292,6 +289,8 @@ Apoio Cultural na Divulgação do Pré Lançamento do #Doc #LasPromesseras #Mara
 [Las Promesseras 11 02 2021](https://www.facebook.com/100062551453397/posts/112085107553204/)
 
 #### Las Promesseras 12 02 2021
+
+## Divulgação Tape Nhande (PY)
 
 #### Tape Nhande 04 02 2021
 ![Tape Nhande 2021 02 04](https://user-images.githubusercontent.com/76437195/106887224-3b9d1580-66bb-11eb-834d-464c93079991.jpg)

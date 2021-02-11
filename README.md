@@ -213,6 +213,7 @@ As Arte Visuais e Grafiteiros Presentes na Divulgação do Pré Lançamento do #
 ![Tape Nhande 2021 02 10](https://user-images.githubusercontent.com/76437195/107529664-7a3a4080-6b91-11eb-89fe-210059f54877.jpg)
 
 10 fev
+
 (XI Tape Nhande) https://www.facebook.com/tapenandenee/posts/243196024067147
 
 (XII Tape Nhande)
@@ -247,7 +248,7 @@ https://www.facebook.com/LasPromesseras/posts/109239334496882
 
 Apoio Cultural na Divulgação do Pré Lançamento do #Doc #LasPromesseras #MaraSilvestre  (#AguaComTV 2020). Uma Atividade Cultural do #CorredorBioceanico do #FestivalToroCandil (#ToroCandil 2021) 
 
-## Divulgação Tape Nhande (PY)
+## Divulgação Las Promesseras Mara Silvestre (PY)
 
 #### Las Promesseras 03 02 2021
 
@@ -281,9 +282,14 @@ Apoio Cultural na Divulgação do Pré Lançamento do #Doc #LasPromesseras #Mara
 
 ![Las Promesseras 10 02 2021](https://user-images.githubusercontent.com/76437195/107637816-183b1300-6c45-11eb-82cf-8c248ad67683.jpg)
 
+![Las Promesseras 10 02 2021](https://user-images.githubusercontent.com/76437195/107639588-75d05f00-6c47-11eb-9be0-6c3e0fc4aad2.jpg)
+
+
 #### Las Promesseras 11 02 2021
 
-[Las Promesseras 10 02 2021](https://www.facebook.com/100062551453397/posts/112085107553204/)
+![Las Promesseras 11 02 2021](https://user-images.githubusercontent.com/76437195/107639643-84b71180-6c47-11eb-97ec-52296406fb9f.jpg)
+
+[Las Promesseras 11 02 2021](https://www.facebook.com/100062551453397/posts/112085107553204/)
 
 #### Las Promesseras 12 02 2021
 

@@ -442,4 +442,6 @@ Fonte: ~> https://www.facebook.com/PoetaManoelDeBarros/posts/268246328037438
 
 ![Las Promesseras Story 03](https://user-images.githubusercontent.com/76437195/107743271-f8f4c200-6ce6-11eb-866e-c8f0662a7782.jpg)
 
+![Las Promesseras Story 04](https://user-images.githubusercontent.com/76437195/107756051-023b5a00-6cfa-11eb-97cd-702187f17188.jpg)
+
 

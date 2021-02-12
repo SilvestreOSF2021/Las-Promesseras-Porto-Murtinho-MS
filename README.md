@@ -307,6 +307,7 @@ https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1330184667336552
 PoetaManoelDeBarros Carregando água na peneira.
 https://www.facebook.com/tapenandenee/posts/240487671004649 
 
+
 ## Mara Silvestre
 
 (I) 
@@ -325,11 +326,9 @@ https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1330278430660509
 
 https://www.facebook.com/photo?fbid=3716517021766328&set=a.1101540683263988  
 
-
 (V) 📽💃 ... chancelando a programação do lançamento do Documentário Las Promesseras Mara Silvestre  no Consulado de lá República del Paraguay Porto Murtinho Brasil com a diplomacia do Cónsul Paraguayo @Luis Gómez Sosa 
 
  https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1331409107214108
-
 
 (VI) nesta tarde, em reunião estratégica na Sectur PM ~  na estrutura o lançamento do Doc  #LasPromesseras  um curta-metragem do contexto Cultural de Porto Murtinho  com Gilka Netto Annie Diaz e toda sua programação #LeiAldirBlanc #PortoMurtinho 
 
@@ -440,7 +439,7 @@ Fonte: ~> https://www.facebook.com/PoetaManoelDeBarros/posts/268246328037438
 
 ![Las Promesseras Story 02](https://user-images.githubusercontent.com/76437195/107743319-0e69ec00-6ce7-11eb-849c-cdd3c907383f.jpg) 
 
-![Las Promesseras Story 03](https://user-images.githubusercontent.com/76437195/107743271-f8f4c200-6ce6-11eb-866e-c8f0662a7782.jpg)
+![Las Promesseras Story 03](https://user-images.githubusercontent.com/76437195/107758840-d5894180-6cfd-11eb-8e7b-c0c336480429.jpg)
 
 ![Las Promesseras Story 04](https://user-images.githubusercontent.com/76437195/107756051-023b5a00-6cfa-11eb-97cd-702187f17188.jpg)
 

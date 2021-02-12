@@ -432,6 +432,14 @@ Celebro que se mantenga y valore esta tradición que expresa parte del Ñande Re
  
 Fonte: ~> https://www.facebook.com/PoetaManoelDeBarros/posts/268246328037438 
 
-![Las Promesseras 2021 02 05 Manoel de Barros](https://user-images.githubusercontent.com/76437195/107739076-70722380-6cde-11eb-931f-7c09930c90f5.jpg)
+![Las Promesseras 2021 02 05 Manoel de Barros](https://user-images.githubusercontent.com/76437195/107739076-70722380-6cde-11eb-931f-7c09930c90f5.jpg) 
+
+## Las Promesseras Story (s)
+
+![Las Promesseras Story 01](https://user-images.githubusercontent.com/76437195/107743271-f8f4c200-6ce6-11eb-866e-c8f0662a7782.jpg)
+
+![Las Promesseras Story 02](https://user-images.githubusercontent.com/76437195/107743298-06aa4780-6ce7-11eb-876e-bafdf6af960d.jpg)
+
+![Las Promesseras Story 03](https://user-images.githubusercontent.com/76437195/107743319-0e69ec00-6ce7-11eb-849c-cdd3c907383f.jpg)
 
 

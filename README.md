@@ -169,8 +169,7 @@ As Arte Visuais e Grafiteiros Presentes na Divulgação do Pré Lançamento do #
 
 (I Tape Nhande) https://www.facebook.com/tapenandenee/posts/230879178632165
 
-![Las Promesseras A3 Of 2021 013 Cast Ficha Tecnica]
-(https://user-images.githubusercontent.com/76437195/104878538-87696400-5932-11eb-872f-d0118b29b685.jpg) 
+![Las Promesseras A3 Of 2021 013 Cast Ficha Tecnica](https://user-images.githubusercontent.com/76437195/104878538-87696400-5932-11eb-872f-d0118b29b685.jpg) 
 
 (II Tape Nhande) https://www.facebook.com/tapenandenee/posts/232140438506039
 

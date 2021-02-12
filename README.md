@@ -127,15 +127,15 @@ Fonte: Toro Candil: tradição de uma fronteira ambivalente. Giselda Paula Tedes
 
 ## Camisetas Oficiais I, II e III
 
-#### Camiseta Oficiais I
+#### Camiseta Oficial I
 
 ![Las Promesseras Camiseta Oficial I SmartPhones WEB](https://user-images.githubusercontent.com/76437195/107515667-b49be180-6b81-11eb-8d84-beb81d3072a6.jpg) 
 
-#### Camiseta Oficiais II
+#### Camiseta Oficial II
 
 ![Las Promesseras Camiseta Oficial II Banner Oficial WEB](https://user-images.githubusercontent.com/76437195/107515710-c1b8d080-6b81-11eb-9192-1a2f833d8c6e.jpg)
 
-#### Camiseta Oficiais III
+#### Camiseta Oficial III
 
 ![Las Promesseras Camiseta Oficial III Frente e Verso WEB](https://user-images.githubusercontent.com/76437195/107515739-caa9a200-6b81-11eb-9e2b-6c660b718d7d.jpg)
 

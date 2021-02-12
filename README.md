@@ -250,37 +250,37 @@ https://www.facebook.com/LasPromesseras/posts/109239334496882
 
 Apoio Cultural na Divulgação do Pré Lançamento do #Doc #LasPromesseras #MaraSilvestre  (#AguaComTV 2020). Uma Atividade Cultural do #CorredorBioceanico do #FestivalToroCandil (#ToroCandil 2021) 
 
-## Divulgação Las Promesseras Mara Silvestre (PY)
+## Divulgação Las Promesseras Mara Silvestre
 
-#### [Las Promesseras 03 02 2021]()
+#### [Las Promesseras 03 02 2021](https://www.facebook.com/laspromesseras.mara.silvestre/posts/109812467780468) 
 
 ![Las Promesseras 03 02  2021](https://user-images.githubusercontent.com/76437195/106887162-27591880-66bb-11eb-8fef-87ebd565035f.jpg)
 
-#### [Las Promesseras 04 02 2021]()
+#### [Las Promesseras 04 02 2021](https://www.facebook.com/laspromesseras.mara.silvestre/posts/110000304428351)  
 
 ![Las Promesseras 04 02  2021](https://user-images.githubusercontent.com/76437195/106887191-3049ea00-66bb-11eb-8e0b-185bba6c385c.jpg)
 
-#### [Las Promesseras 05 02 2021]()
+#### [Las Promesseras 05 02 2021](https://www.facebook.com/laspromesseras.mara.silvestre/posts/110281834400198)  
 
 ![Las Promesseras 05 02 2021](https://user-images.githubusercontent.com/76437195/107103024-91280e00-67f2-11eb-8e13-e1589a20def4.jpg)
 
-#### [Las Promesseras 06 02 2021]()
+#### [Las Promesseras 06 02 2021](https://www.facebook.com/laspromesseras.mara.silvestre/posts/110644697697245) 
 
 ![Las Promesseras 06 02 2021](https://user-images.githubusercontent.com/76437195/107450068-fc3b5280-6b1a-11eb-81e8-05feabbceaac.jpg)
 
-#### [Las Promesseras 07 02 2021]()
+#### [Las Promesseras 07 02 2021](https://www.facebook.com/laspromesseras.mara.silvestre/posts/110842547677460) 
 
 ![Las Promesseras 08 02 2021](https://user-images.githubusercontent.com/76437195/107450106-0e1cf580-6b1b-11eb-96c8-36bca2d30957.jpg)
 
-#### [Las Promesseras 08 02 2021]()
+#### [Las Promesseras 08 02 2021](https://www.facebook.com/laspromesseras.mara.silvestre/posts/111160490978999) 
 
 ![Las Promesseras 08 02 2021](https://user-images.githubusercontent.com/76437195/107450131-15dc9a00-6b1b-11eb-94c4-39aec5bf7852.jpg)
 
-#### [Las Promesseras 09 02 2021]()
+#### [Las Promesseras 09 02 2021](https://www.facebook.com/laspromesseras.mara.silvestre/posts/111393580955690)
 
 ![Las Promesseras 09 02 2021](https://user-images.githubusercontent.com/76437195/107450144-1c6b1180-6b1b-11eb-8585-38ea3127b763.jpg)
 
-#### [Las Promesseras 10 02 2021]()
+#### [Las Promesseras 10 02 2021](https://www.facebook.com/laspromesseras.mara.silvestre/posts/111841917577523)
 
 ![Las Promesseras 10 02 2021](https://user-images.githubusercontent.com/76437195/107639588-75d05f00-6c47-11eb-9be0-6c3e0fc4aad2.jpg)
 
@@ -290,7 +290,7 @@ Apoio Cultural na Divulgação do Pré Lançamento do #Doc #LasPromesseras #Mara
 
 #### [Las Promesseras 12 02 2021](https://www.facebook.com/laspromesseras.mara.silvestre/posts/112271520867896)
 
-![Las Promesseras 12 02 2021](https://user-images.githubusercontent.com/76437195/107738158-87177b00-6cdc-11eb-92f5-0fb1b8e24334.jpg) 
+![Las Promesseras 12 02 2021](https://user-images.githubusercontent.com/76437195/107738158-87177b00-6cdc-11eb-92f5-0fb1b8e24334.jpg)  
 
 ## Divulgação Tape Nhande (PY)
 

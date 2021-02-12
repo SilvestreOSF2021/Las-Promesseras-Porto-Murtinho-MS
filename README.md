@@ -165,60 +165,50 @@ As Arte Visuais e Grafiteiros Presentes na Divulgação do Pré Lançamento do #
 
 ## [Divulgacão Tape Nhande Facebook](https://www.facebook.com/tapenandenee)
 
+21 jan (I Tape Nhande) https://www.facebook.com/tapenandenee/posts/230879178632165
 ![Tape Nhande Las Promesseras Mosaicos 05 de 05](https://user-images.githubusercontent.com/76437195/105612289-82247300-5d91-11eb-950d-51b914531abe.jpg) 
 
-(I Tape Nhande) https://www.facebook.com/tapenandenee/posts/230879178632165
+25 jan (II Tape Nhande) https://www.facebook.com/tapenandenee/posts/232140438506039
+![Tape Nhande Las Promesseras Mosaicos 2021 01 25 Nelson Cintra Mirna Segovia](https://user-images.githubusercontent.com/76437195/105786256-138f1300-5f53-11eb-87b9-f2fabe8d5be8.jpg)
 
 ![Las Promesseras A3 Of 2021 013 Cast Ficha Tecnica](https://user-images.githubusercontent.com/76437195/104878538-87696400-5932-11eb-872f-d0118b29b685.jpg) 
 
-(II Tape Nhande) https://www.facebook.com/tapenandenee/posts/232140438506039
+26 jan (III Tape Nhande) https://www.facebook.com/tapenandenee/posts/234014774985272 
 
-![Tape Nhande Las Promesseras Mosaicos 2021 01 25 Nelson Cintra Mirna Segovia](https://user-images.githubusercontent.com/76437195/105786256-138f1300-5f53-11eb-87b9-f2fabe8d5be8.jpg)
-
-(III Tape Nhande) https://www.facebook.com/tapenandenee/posts/234014774985272 
-
+18 jan (IV Tape Nhande) https://www.facebook.com/tapenandenee/posts/235432224843527
 📽💃 ... Chancelando a Programação do Lançamento do Documentário Las Promesseras Mara Silvestre #AguaComTV 2020 no Consulado de lá República del Paraguay Porto Murtinho Brasil com a diplomacia do Cónsul Paraguayo @LuisGómezSosa 🌎 #ORioQueSeparaNosUne 🌅 #FestivalToroCandil 🔥🎇✨ Toro Candil #LasPromesseras 📽💃 
 
 ![Mascara Las Promesseras 2021 07 Consul PY Porto Murtinho](https://user-images.githubusercontent.com/76437195/106215859-3f570680-61a8-11eb-9442-cc8be2b10792.jpg)
  
-(IV Tape Nhande)https://www.facebook.com/tapenandenee/posts/235432224843527
-
+01 fev (V Tape Nhande) https://www.facebook.com/tapenandenee/posts/237967914589958
 ![Tape Nhande 2021 02 01](https://user-images.githubusercontent.com/76437195/107529527-5545cd80-6b91-11eb-9c58-4d76f3ded4d5.jpg)
 
-01 fev
-(V Tape Nhande) https://www.facebook.com/tapenandenee/posts/237967914589958
+02 fev (VI Tape Nhande) https://www.facebook.com/tapenandenee/posts/238577347862348
 
-02 fev
-(VI Tape Nhande) https://www.facebook.com/tapenandenee/posts/238577347862348
- 
+04 fev (VII Tape Nhande) https://www.facebook.com/tapenandenee/posts/239517201101696
 ![Tape Nhande 2021 02 04](https://user-images.githubusercontent.com/76437195/107529554-5bd44500-6b91-11eb-99b7-59f21170d435.jpg)
 
-04 fev
-(VII Tape Nhande) https://www.facebook.com/tapenandenee/posts/239517201101696
- 
+
 ![Tape Nhande 2021 02 05](https://user-images.githubusercontent.com/76437195/107529575-62fb5300-6b91-11eb-819d-dce51dd9077b.jpg)
 
 05 fev
 (VIII Tape Nhande) https://www.facebook.com/tapenandenee/posts/240210991032317 
-
 ![Tape Nhande 2021 02 06](https://user-images.githubusercontent.com/76437195/107529601-6989ca80-6b91-11eb-8f1f-3cd03ae59e62.jpg)
 
 06 fev
 (IX Tape Nhande) https://www.facebook.com/tapenandenee/posts/240769550976461
-
 ![Tape Nhande 2021 02 08](https://user-images.githubusercontent.com/76437195/107529636-71496f00-6b91-11eb-80d7-0a309797e395.jpg) 
 
 08 fev
 (X Tape Nhande) https://www.facebook.com/tapenandenee/posts/241891697530913
-
 ![Tape Nhande 2021 02 10](https://user-images.githubusercontent.com/76437195/107529664-7a3a4080-6b91-11eb-89fe-210059f54877.jpg)
 
 10 fev
-
 (XI Tape Nhande) https://www.facebook.com/tapenandenee/posts/243196024067147
 
-(XII Tape Nhande)
-
+12 fev
+(XII Tape Nhande) https://facebook.com/story.php?story_fbid=244425930610823&id=100051302539016
+![Tape Nhande 2021 02 12](https://user-images.githubusercontent.com/76437195/107771975-f65b9200-6d11-11eb-8f25-4701b8fa8906.jpg)
 (XIII Tape Nhande)
 
 

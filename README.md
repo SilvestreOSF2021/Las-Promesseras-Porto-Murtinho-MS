@@ -192,13 +192,12 @@ https://www.facebook.com/tapenandenee/posts/240487671004649
 ![Tape Nhande 2021 02 01](https://user-images.githubusercontent.com/76437195/107529527-5545cd80-6b91-11eb-9c58-4d76f3ded4d5.jpg)
 
 02 fev (VI Tape Nhande) https://www.facebook.com/tapenandenee/posts/238577347862348
+![Tape Nhande 2021 02 04](https://user-images.githubusercontent.com/76437195/107529554-5bd44500-6b91-11eb-99b7-59f21170d435.jpg) 
 
 04 fev (VII Tape Nhande) https://www.facebook.com/tapenandenee/posts/239517201101696
-![Tape Nhande 2021 02 04](https://user-images.githubusercontent.com/76437195/107529554-5bd44500-6b91-11eb-99b7-59f21170d435.jpg)
-
 ![Tape Nhande 2021 02 04](https://user-images.githubusercontent.com/76437195/106887224-3b9d1580-66bb-11eb-834d-464c93079991.jpg)
 
-05 fev (VIII Tape Nhande)
+05 fev (VIII Tape Nhande) 
 ![Tape Nhande 2021 02 05](https://user-images.githubusercontent.com/76437195/107529575-62fb5300-6b91-11eb-819d-dce51dd9077b.jpg)
 
 06 fev (IX Tape Nhande)

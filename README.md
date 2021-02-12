@@ -430,5 +430,8 @@ Celebro que se mantenga y valore esta tradición que expresa parte del Ñande Re
 
 (...) O seu primeiro livro, Nossa Senhora da Escuridão, foi confiscado por um policial ao tentar prendê-lo por comunismo... O senhor se lembra desses poemas? Tem algum manuscrito? Eu só me lembro que o policial que levou o livro fez uma boa ação.
  
-https://www.facebook.com/PoetaManoelDeBarros/posts/268246328037438
+Fonte: ~> https://www.facebook.com/PoetaManoelDeBarros/posts/268246328037438 
+
+![Las Promesseras 2021 02 05 Manoel de Barros](https://user-images.githubusercontent.com/76437195/107739076-70722380-6cde-11eb-931f-7c09930c90f5.jpg)
+
 

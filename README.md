@@ -200,12 +200,13 @@ https://www.facebook.com/tapenandenee/posts/240487671004649
 10 fev (XI Tape Nhande) https://www.facebook.com/tapenandenee/posts/243196024067147
 ![Tape Nhande 2021 02 10](https://user-images.githubusercontent.com/76437195/107529664-7a3a4080-6b91-11eb-89fe-210059f54877.jpg)
 
-11 fev (XII Tape Nhande) https://www.facebook.com/tapenandenee/posts/244009957319087
+11 fev (XII Tape Nhande) https://www.facebook.com/tapenandenee/posts/244009957319087 
 
-12 fev (XIII Tape Nhande) https://www.facebook.com/laspromesseras.mara.silvestre/posts/112291447532570
+
+12 fev (XIII Tape Nhande) https://www.facebook.com/tapenandenee/posts/244425930610823
 ![Tape Nhande 2021 02 12](https://user-images.githubusercontent.com/76437195/107771975-f65b9200-6d11-11eb-8f25-4701b8fa8906.jpg)
 
-12 fev (XIV Tape Nhande) https://www.facebook.com/tapenandenee/posts/244425930610823
+12 fev (XIV Tape Nhande) https://www.facebook.com/laspromesseras.mara.silvestre/posts/112291447532570 
 
 
 ## Postagem Perfil Facebook Las Promesseras

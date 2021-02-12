@@ -342,11 +342,10 @@ https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1333879463633739
 (XX) 📽💃 Serafina Maciel ~ promesseira e personagem real do documentário, com seu depoimento cheia de fé na tradição🕯🙏🕯 aguarda com expectativa o lançamento Las Promesseras Mara Silvestre 📽💃 #ORioQueSeparaNosUne 🌅 #FestivalToroCandil 🔥🎇✨ #LasPromesseras 📽💃 
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1333995646955454 
 
-(XXI) ...  estivemos hj, com o presidente da Fundação de Cultura Gustavo de Arruda Castelo, em visita apresentamos para o acompanhamento, o projeto de lançamento do Documentário  
-Las Promesseras Mara Silvestre, um projeto que desenvolve as manifestações culturais da Rota Bioceânica. 
-#ORioQueSeparaNosUne 🌅 #FestivalToroCandil 🔥🎇✨ #LasPromesseras 📽💃 #AGUACOMTV #PortoMurtinho 
-#RotaBioceânica #RutaBioceanica #Intercultural #IslaMargarita #CarmeloPeralta  #PantanalSul #AltoParaguay #GranChaco 
-https://facebook.com/story.php?story_fbid=1341596676195351&id=100010350935886
+(XXI) ...  estivemos hj, com o presidente da Fundação de Cultura Gustavo de Arruda Castelo, em visita apresentamos para o acompanhamento, o projeto de lançamento do Documentário Las Promesseras Mara Silvestre, um projeto que desenvolve as manifestações culturais da Rota Bioceânica. 
+#ORioQueSeparaNosUne 🌅 #FestivalToroCandil 🔥🎇✨ #LasPromesseras 📽💃 #AGUACOMTV #PortoMurtinho #RotaBioceânica #RutaBioceanica #Intercultural #IslaMargarita #CarmeloPeralta  #PantanalSul #AltoParaguay #GranChaco 
+https://facebook.com/story.php?story_fbid=1341596676195351&id=100010350935886 
+![Mara Silvestre 2021 02 09 FCMS Las Promesseras](https://user-images.githubusercontent.com/76437195/107827436-3136e780-6d5d-11eb-9665-4127344e880b.jpg)
 
 
 ## Las Promesseras PAGE

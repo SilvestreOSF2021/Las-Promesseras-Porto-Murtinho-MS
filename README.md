@@ -288,7 +288,9 @@ Apoio Cultural na Divulgação do Pré Lançamento do #Doc #LasPromesseras #Mara
 
 #### Las Promesseras 12 02 2021  ~> LINK [Las Promesseras 12 02 2021](https://www.facebook.com/laspromesseras.mara.silvestre/posts/112271520867896)
 
-[Las Promesseras 12 02 2021](https://user-images.githubusercontent.com/76437195/107737406-bc22ce00-6cda-11eb-9c89-119c25736feb.jpg)
+[Las Promesseras 12 02 2021](https://user-images.githubusercontent.com/76437195/107737406-bc22ce00-6cda-11eb-9c89-119c25736feb.jpg) 
+
+![Las Promesseras 12 02 2021](https://user-images.githubusercontent.com/76437195/107738158-87177b00-6cdc-11eb-92f5-0fb1b8e24334.jpg) 
 
 ## Divulgação Tape Nhande (PY)
 
@@ -418,6 +420,13 @@ Celebro que se mantenga y valore esta tradición que expresa parte del Ñande Re
 #MarioRubénAlvarez
 
 ## Coluna Fernando Soares 06fev21 
+
+![Las Promesseras Fernando Soares 06fev2021 I](https://user-images.githubusercontent.com/76437195/107738190-91d21000-6cdc-11eb-804d-3a8469e45587.jpg)
+
+![Las Promesseras Fernando Soares 06fev2021 II](https://user-images.githubusercontent.com/76437195/107738199-98608780-6cdc-11eb-8db0-86d87092492b.jpg)
+
+![Las Promesseras 2021 02 04 Convite](https://user-images.githubusercontent.com/76437195/107738212-a2828600-6cdc-11eb-92d1-459fdf9823d1.jpg)
+
 
 ## Page Poeta Manoel de Barros
 

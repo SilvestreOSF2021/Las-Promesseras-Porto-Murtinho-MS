@@ -1,5 +1,7 @@
 # Las Promesseras Porto Murtinho MS
 
+![Las Promesseras 2021 02 04 Convite](https://user-images.githubusercontent.com/76437195/107738212-a2828600-6cdc-11eb-92d1-459fdf9823d1.jpg)
+
 O Toro Candil é prática cultural singular em Porto Murtinho, Mato Grosso do Sul. Constitui-se paródia das corridas de toros ou das toradas espanholas. A chegada do Toro é anunciada pela Pelota Tata. Ao Toro, seguem-se os Mascaritas, os toureiros. É realizado como promessa a Nossa Senhora de Caacupé. É mantido por paraguaios e seus descendentes por motivo de fé e devoção. Acontece mais comumente na fronteira, região permeada por práticas culturais de origem espanhola e guarani que se misturaram, desenvolveram-se e transformaram-se. Em sua singularidade, está associada, também, à materialidade engendrada pela pecuária.
 
 Essa prática cultural expressa uma sobrevivência secular, preservada no âmago das relações sociais. Compartilhada pelos residentes em Porto Murtinho, marca a presença do trabalhador paraguaio no sudoeste de Mato Grosso do Sul, desde a sua designação em língua espanhola. Das várias práticas culturais conhecidas no Brasil e que envolvem a pecuária bovina, nenhuma se assemelha ao Toro Candil.
@@ -250,45 +252,43 @@ Apoio Cultural na Divulgação do Pré Lançamento do #Doc #LasPromesseras #Mara
 
 ## Divulgação Las Promesseras Mara Silvestre (PY)
 
-#### Las Promesseras 03 02 2021  ~> LINK
+#### [Las Promesseras 03 02 2021]()
 
 ![Las Promesseras 03 02  2021](https://user-images.githubusercontent.com/76437195/106887162-27591880-66bb-11eb-8fef-87ebd565035f.jpg)
 
-#### Las Promesseras 04 02 2021  ~> LINK
+#### [Las Promesseras 04 02 2021]()
 
 ![Las Promesseras 04 02  2021](https://user-images.githubusercontent.com/76437195/106887191-3049ea00-66bb-11eb-8e0b-185bba6c385c.jpg)
 
-#### Las Promesseras 05 02 2021  ~> LINK
+#### [Las Promesseras 05 02 2021]()
 
 ![Las Promesseras 05 02 2021](https://user-images.githubusercontent.com/76437195/107103024-91280e00-67f2-11eb-8e13-e1589a20def4.jpg)
 
-#### Las Promesseras 06 02 2021  ~> LINK
+#### [Las Promesseras 06 02 2021]()
 
 ![Las Promesseras 06 02 2021](https://user-images.githubusercontent.com/76437195/107450068-fc3b5280-6b1a-11eb-81e8-05feabbceaac.jpg)
 
-#### Las Promesseras 07 02 2021  ~> LINK
+#### [Las Promesseras 07 02 2021]()
 
 ![Las Promesseras 08 02 2021](https://user-images.githubusercontent.com/76437195/107450106-0e1cf580-6b1b-11eb-96c8-36bca2d30957.jpg)
 
-#### Las Promesseras 08 02 2021  ~> LINK
+#### [Las Promesseras 08 02 2021]()
 
 ![Las Promesseras 08 02 2021](https://user-images.githubusercontent.com/76437195/107450131-15dc9a00-6b1b-11eb-94c4-39aec5bf7852.jpg)
 
-#### Las Promesseras 09 02 2021  ~> LINK
+#### [Las Promesseras 09 02 2021]()
 
 ![Las Promesseras 09 02 2021](https://user-images.githubusercontent.com/76437195/107450144-1c6b1180-6b1b-11eb-8585-38ea3127b763.jpg)
 
-#### Las Promesseras 10 02 2021  ~> LINK
+#### [Las Promesseras 10 02 2021]()
 
 ![Las Promesseras 10 02 2021](https://user-images.githubusercontent.com/76437195/107639588-75d05f00-6c47-11eb-9be0-6c3e0fc4aad2.jpg)
 
-#### Las Promesseras 11 02 2021 ~> LINK [Las Promesseras 11 02 2021](https://www.facebook.com/100062551453397/posts/112085107553204/)
+#### [Las Promesseras 11 02 2021](https://www.facebook.com/100062551453397/posts/112085107553204/)
 
 ![Las Promesseras 11 02 2021](https://user-images.githubusercontent.com/76437195/107639643-84b71180-6c47-11eb-97ec-52296406fb9f.jpg)
 
-#### Las Promesseras 12 02 2021  ~> LINK [Las Promesseras 12 02 2021](https://www.facebook.com/laspromesseras.mara.silvestre/posts/112271520867896)
-
-[Las Promesseras 12 02 2021](https://user-images.githubusercontent.com/76437195/107737406-bc22ce00-6cda-11eb-9c89-119c25736feb.jpg) 
+#### [Las Promesseras 12 02 2021](https://www.facebook.com/laspromesseras.mara.silvestre/posts/112271520867896)
 
 ![Las Promesseras 12 02 2021](https://user-images.githubusercontent.com/76437195/107738158-87177b00-6cdc-11eb-92f5-0fb1b8e24334.jpg) 
 
@@ -425,8 +425,10 @@ Celebro que se mantenga y valore esta tradición que expresa parte del Ñande Re
 
 ![Las Promesseras Fernando Soares 06fev2021 II](https://user-images.githubusercontent.com/76437195/107738199-98608780-6cdc-11eb-8db0-86d87092492b.jpg)
 
-![Las Promesseras 2021 02 04 Convite](https://user-images.githubusercontent.com/76437195/107738212-a2828600-6cdc-11eb-92d1-459fdf9823d1.jpg)
 
+## Page Poeta Manoel de Barros 
 
-## Page Poeta Manoel de Barros
+(...) O seu primeiro livro, Nossa Senhora da Escuridão, foi confiscado por um policial ao tentar prendê-lo por comunismo... O senhor se lembra desses poemas? Tem algum manuscrito? Eu só me lembro que o policial que levou o livro fez uma boa ação.
+ 
+https://www.facebook.com/PoetaManoelDeBarros/posts/268246328037438
 

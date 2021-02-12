@@ -201,7 +201,7 @@ https://www.facebook.com/tapenandenee/posts/240487671004649
 ![Tape Nhande 2021 02 10](https://user-images.githubusercontent.com/76437195/107529664-7a3a4080-6b91-11eb-89fe-210059f54877.jpg)
 
 11 fev (XII Tape Nhande) https://www.facebook.com/tapenandenee/posts/244009957319087 
-
+![Las Promesseras 02 02 2021](https://user-images.githubusercontent.com/76437195/106560369-4e69eb80-64fd-11eb-8c1d-380bc5d3ef60.jpg)
 
 12 fev (XIII Tape Nhande) https://www.facebook.com/tapenandenee/posts/244425930610823
 ![Tape Nhande 2021 02 12](https://user-images.githubusercontent.com/76437195/107771975-f65b9200-6d11-11eb-8f25-4701b8fa8906.jpg)
@@ -368,13 +368,10 @@ https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1333995646955454
 Como Apoio Cultural, divulgamos as Postagens do Pré Lançamento  do #Doc Las Promesseras Direção Mara Silvestre (#AguaComTV 2020) integrante do Festival Toro Candil como #AtividadeCultural do #CorredorBioceânico: Banners da Divulgação do Pré Lançamento Projeto #LeiAldirBlanc #PMPM #FCMS ~> #SecturPM / Fundação de Cultura de Mato Grosso do Sul / Prefeitura Municipal de Porto Murtinho / #GovMS #ToroCandil #MaraSilvestre #oRioQueSeparaNosUne #FestivalToroCandil #LasPromesseras #PortoMurtinho #CarmeloPeralta #PantanalSUL #ChacoParaguayo #Pantanal 
 
 Banners da Divulgação do Pré Lançamento do #Doc Las Promesseras ~> https://www.facebook.com/LasPromesseras/posts/109239334496882 
-
 ![Las Promesseras 01 02 2021](https://user-images.githubusercontent.com/76437195/106560310-34300d80-64fd-11eb-93e2-cd7565904ee0.jpg)
 
 Banners da Divulgação do Pré Lançamento do #Doc Las Promesseras Mara Silvestre (#AguaComTV 2020). Uma Atividade Cultural do #CorredorBioceanico do #FestivalToroCandil (Toro Candil 2021) ~> https://www.facebook.com/laspromesseras.mara.silvestre/posts/109388811156167
-
 ![Las Promesseras 02 02 2021](https://user-images.githubusercontent.com/76437195/106560369-4e69eb80-64fd-11eb-8c1d-380bc5d3ef60.jpg)
-
 
 La vigencia de @LasPromesseras en Murtinho habla del vigor de una cultura popular que no conoce fronteras. La fe sencilla de muchas mujeres que tras implorar un favor de la Virgen de Caacupé cumplen lo prometido a su Madre de modos diversos habla de una espiritualidad que se mantiene viva.
 

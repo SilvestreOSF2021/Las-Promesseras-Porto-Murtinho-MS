@@ -163,10 +163,6 @@ As Arte Visuais e Grafiteiros Presentes na Divulgação do Pré Lançamento do #
 
 ## [Divulgacão Tape Nhande Facebook](https://www.facebook.com/tapenandenee)
 
-#### Tape Nhande 04 02 2021
-![Tape Nhande 2021 02 04](https://user-images.githubusercontent.com/76437195/106887224-3b9d1580-66bb-11eb-834d-464c93079991.jpg)
-#PantanalSul  #GranChaco
-
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1330184667336552 
 
 #### Tape Nhande 05 02 2021 
@@ -200,27 +196,27 @@ https://www.facebook.com/tapenandenee/posts/240487671004649
 04 fev (VII Tape Nhande) https://www.facebook.com/tapenandenee/posts/239517201101696
 ![Tape Nhande 2021 02 04](https://user-images.githubusercontent.com/76437195/107529554-5bd44500-6b91-11eb-99b7-59f21170d435.jpg)
 
+![Tape Nhande 2021 02 04](https://user-images.githubusercontent.com/76437195/106887224-3b9d1580-66bb-11eb-834d-464c93079991.jpg)
+
+05 fev (VIII Tape Nhande)
 ![Tape Nhande 2021 02 05](https://user-images.githubusercontent.com/76437195/107529575-62fb5300-6b91-11eb-819d-dce51dd9077b.jpg)
 
-05 fev
-(VIII Tape Nhande) https://www.facebook.com/tapenandenee/posts/240210991032317 
+06 fev (IX Tape Nhande)
 ![Tape Nhande 2021 02 06](https://user-images.githubusercontent.com/76437195/107529601-6989ca80-6b91-11eb-8f1f-3cd03ae59e62.jpg)
 
-06 fev
-(IX Tape Nhande) https://www.facebook.com/tapenandenee/posts/240769550976461
+08 fev (X Tape Nhande) https://www.facebook.com/tapenandenee/posts/240769550976461
 ![Tape Nhande 2021 02 08](https://user-images.githubusercontent.com/76437195/107529636-71496f00-6b91-11eb-80d7-0a309797e395.jpg) 
 
-08 fev
-(X Tape Nhande) https://www.facebook.com/tapenandenee/posts/241891697530913
+10 fev (XI Tape Nhande) https://www.facebook.com/tapenandenee/posts/241891697530913
 ![Tape Nhande 2021 02 10](https://user-images.githubusercontent.com/76437195/107529664-7a3a4080-6b91-11eb-89fe-210059f54877.jpg)
 
-10 fev
-(XI Tape Nhande) https://www.facebook.com/tapenandenee/posts/243196024067147
+11 fev
+(XII Tape Nhande) https://www.facebook.com/tapenandenee/posts/243196024067147
 
-12 fev
-(XII Tape Nhande) https://facebook.com/story.php?story_fbid=244425930610823&id=100051302539016
+12 fev (XIII Tape Nhande) https://facebook.com/story.php?story_fbid=244425930610823&id=100051302539016
 ![Tape Nhande 2021 02 12](https://user-images.githubusercontent.com/76437195/107771975-f65b9200-6d11-11eb-8f25-4701b8fa8906.jpg)
-(XIII Tape Nhande)
+
+(XIV Tape Nhande)
 
 
 ## Postagem Perfil Facebook Las Promesseras

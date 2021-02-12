@@ -156,8 +156,6 @@ As Arte Visuais e Grafiteiros Presentes na Divulgação do Pré Lançamento do #
 
 ![Las Promesseras Foto Perfil Facebook](https://user-images.githubusercontent.com/76437195/105171241-62245380-5af4-11eb-9bd0-498b3fa738b2.jpg)
 
-![Las Promesseras Foto Capa Facebook](https://user-images.githubusercontent.com/76437195/105112467-7b4be680-5a99-11eb-8027-13498de27655.jpg) 
-
 ![Las Promesseras Foto Perfil Facebook Fundo Escuro](https://user-images.githubusercontent.com/76437195/105113475-66705280-5a9b-11eb-997f-c26647b6814c.jpg) 
 
 ![Mascara Las Promesseras 2021 03 SmartPhone](https://user-images.githubusercontent.com/76437195/105422408-14097000-5c1a-11eb-9fc1-6dbfb8a57667.jpg) 
@@ -165,7 +163,10 @@ As Arte Visuais e Grafiteiros Presentes na Divulgação do Pré Lançamento do #
 
 ## [Divulgacão Tape Nhande Facebook](https://www.facebook.com/tapenandenee)
 
-21 jan (I Tape Nhande) https://www.facebook.com/tapenandenee/posts/230879178632165
+21 jan (I Tape Nhande) https://www.facebook.com/tapenandenee/posts/230879178632165 
+![Las Promesseras Foto Capa Facebook](https://user-images.githubusercontent.com/76437195/105112467-7b4be680-5a99-11eb-8027-13498de27655.jpg) 
+
+
 ![Tape Nhande Las Promesseras Mosaicos 05 de 05](https://user-images.githubusercontent.com/76437195/105612289-82247300-5d91-11eb-950d-51b914531abe.jpg) 
 
 25 jan (II Tape Nhande) https://www.facebook.com/tapenandenee/posts/232140438506039

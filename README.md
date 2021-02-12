@@ -279,88 +279,74 @@ Apoio Cultural na Divulgação do Pré Lançamento do #Doc #LasPromesseras #Mara
 (I) 🚣‍♀️🚣‍♂️ margeando a Rota Bioceânica da Integração ~ CRIANDOPONTES na  comunicação fronteiriça  do Documentário  Las Promesseras 📽💃 em visita a lá  Municipalidad de Carmelo Peralta  
 #ORioQueSeparaNosUne🌅   #LasPromesseras📽💃  #PortoMurtinho  #Intercultural #CarmeloPeralta #IslaMargarita 
 #PantanalSul #GranChaco 
-
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1330184667336552
 
 (II) ......................📽💃 no encantamento de Las Promesseras nesta tarde, cruzando as fronteiras, a  Intendiente Mirna Orrego Segovia de Carmelo Peralta ~ na agenda do lançamento do Documentário #ORioQueSeparaNosUne 🌅 #LasPromesseras 📽💃 #PortoMurtinho #RotaBioceânica #RutaBioceanica #Intercultural #IslaMargarita #CarmeloPeralta #PantanalSul #GranChaco 
-
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1330202624001423
 
 (III) 🎇a festejar a mulher paraguaia e o  processo sócio Cultural fronteiriço no lançamento do documentário #LasPromesseras 📽💃 nesta tarde com a Intendiente Mirna Orrego Segovia em lá  Municipalidad de Carmelo Peralta e sua programação 📽💃🎬 #ORioQueSeparaNosUne🌅 #PortoMurtinho #RotaBioceânica #RutaBioceanica #Intercultural #IslaMargarita #CarmeloPeralta #PantanalSul #GranChaco 
-
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1330278430660509
 
 (IV) Hj o dia foi muito especial feliz e de emoções!! Visitando a Intendente Municipal de Carmelo Peralta-Py Sra. Mirna Orrego Segovia na companhia da minha irmã Mara Silvestre para a divulgação do seu mais novo trabalho " Las Promesseras Mara Silvestre ". Viva Porto Murtinho!! Viva Carmelo Peralta!! Viva o Brasil !! Viva o Paraguay!! Viva o Corredor Bioceânico !! Viva a integração!! — a sentir-se alegre em Carmelo Peralta.
-
 https://www.facebook.com/photo?fbid=3716517021766328&set=a.1101540683263988  
 
 (V) 📽💃 ... chancelando a programação do lançamento do Documentário Las Promesseras Mara Silvestre  no Consulado de lá República del Paraguay Porto Murtinho Brasil com a diplomacia do Cónsul Paraguayo @Luis Gómez Sosa 
-
- https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1331409107214108
+https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1331409107214108
 
 (VI) nesta tarde, em reunião estratégica na Sectur PM ~  na estrutura o lançamento do Doc  #LasPromesseras  um curta-metragem do contexto Cultural de Porto Murtinho  com Gilka Netto Annie Diaz e toda sua programação #LeiAldirBlanc #PortoMurtinho 
-
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1331726817182337
 
 (VII) ao reconhecer sua "virgencita" a promesseira Norberta Martinez  - D. Louve como é carinhosamente chamada, se emociona e se prepara para o lançamento do documentário Las Promesseras Mara Silvestre  
-
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1331754577179561
 
 (VIII) e os causos da promesseira D. Louve,  Norberta Martinez segue para vários episódios,   🎬 no entusiasmo se prepara na expectativa das amigas promesseiras no documentário Las Promesseras Mara Silvestre trechos de história de uma vida retratada em registro. Viva las promesseras!!
-
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1331762157178803 
 
 (IX) ... na devoção da promesseira Esmeralda da Silva de Oliveira, a mestiçagem fronteiriça cruzando as fronteiras 🚣‍♀️🚣‍♂️🔥🌅✨e  toda sua manifestação Cultural Popular no  andor de sua morada 
-
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1332381463783539
 
 (X) "en bajo de la enramada,  salen las galoperas"🎶🎶 me contava nesta tarde suas memórias de infância fronteiriça, a promesseira Ignacia Britez Soler 📽💃 que atenciosamente apreciava os encartes da sua participação com um canto ungido no doc Las Promesseras
-
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1332505187104500 
 
 (XI) na pureza do encantamento, a promesseira Damasia Sanches, rememora seu momento de devoção na  manifestação Cultural popular do seu envolvimento,  no Doc Las Promesseras
-
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1332526597102359
 
 (XII) ... é de uma intimidade tão doce na devoção, que é uma alegria em luz estar com elas!! Damasia Sanches, promesseira e personagem real no documentário na expectativa 📽💃 Las Promesseras Mara Silvestre 📽💃 #ORioQueSeparaNosUne 🌅 #FestivalToroCandil 🔥🎇✨ #LasPromesseras 📽💃
-
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1332533797101639 
 
 (XIII) 🙏🌀 elas rezavam em Guaraní suas devoções, 🙏🌀 a promesseira  rezadeira Dona Felipa Talavera, mantém seu trido na sua raiz guaraní - idioma fluente entre elas 
 em margens fronteiriças. 🚣‍♂️🚣‍♀️   Sorridente e em oração, aguarda sua participação no  Doc Las Promesseras Mara Silvestre 📽💃 #ORioQueSeparaNosUne 🌅 #FestivalToroCandil 🔥🎇✨ #LasPromesseras 📽💃
-
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1332562883765397 
 
 (XIV) sempre vou venerar "a virgencita" e manter portas abertas da capelinha para a tradição da devoção em oração 🌿🙏🌿 no idioma  guarani a promesseira 📽💃
 Felipa Talavera é personagem real do documentário Las Promesseras Mara Silvestre  #ORioQueSeparaNosUne 🌅 #FestivalToroCandil 🔥🎇✨ #LasPromesseras 📽💃
-
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1332575320430820 
 
 (XV) 📽💃 a promesseira Florence Jara e o matriarcado das "virgencitas" ao longo do tempo da familia; a elas em cantoria 🎶🙏🎶 ela festeja a devoção familiar na manifestação dos festejos da religiosidade,  é personagem real do documentário 🎬 Las Promesseras Mara Silvestre 📽💃 #ORioQueSeparaNosUne 🌅
-
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1332589950429357 
 
 (XVI) ...🕯🌿🕯 de geração a geração todos seguem participando; 🌀na memória a promesseira Ignacia Britez Soler trás os festejos da devoção, compartilhada no Doc Las Promesseras Mara Silvestre 📽💃 na família, toda a expectativa do lançamento, na personagem real da matriarca 🌳🏡🌳 #ORioQueSeparaNosUne 🌅 #FestivalToroCandil 🔥🎇✨ #LasPromesseras 📽💃
-
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1332605173761168
 
 (XVII) ... 🌀🌿🌀 na contemplação de suas plantas, no cantinho da  sua casa🏡 ~  a  promesseira Dona Canta - encanta a todos com sua devoção em oração na capelinha da sua "virgencita", visitada pela comunidade 🙏🌅 Las Promesseras Mara Silvestre  📽💃 #ORioQueSeparaNosUne 🌅 #FestivalToroCandil 🔥🎇✨ #LasPromesseras 📽💃
-
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1333097013711984 
 
 (XVIII) ... 🙌🏾 recebendo a sagrada benção de "São José " pelo pároco de Porto Murtinho #PdMatheus #ficapadrematheus 🕯🙏🕯 na programação do lançamento do Doc
 Las Promesseras Mara Silvestre  📽💃 ... registo da cultura religiosidade popular e suas viventes #LasPromesseras 🙏🕯🙏
-
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1333795963642089
 
 (XIX) ... 🙌🏾🙏🙌🏾 dia de "graça" na benção de São José,  aos fiéis da comunidade pelo Pd. Matheus em visita hj à programação do lançamento do documentário e sua 
 história de devoção fronteiriça 🚣‍♀️🙏🚣‍♂️ Las Promesseras Mara Silvestre 📽💃 #ORioQueSeparaNosUne 🌅 #FestivalToroCandil 🔥🎇✨ #LasPromesseras 📽💃
 
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1333879463633739
-
 (XX) 📽💃 Serafina Maciel ~ promesseira e personagem real do documentário, com seu depoimento cheia de fé na tradição🕯🙏🕯 aguarda com expectativa o lançamento Las Promesseras Mara Silvestre 📽💃 #ORioQueSeparaNosUne 🌅 #FestivalToroCandil 🔥🎇✨ #LasPromesseras 📽💃 
-
 https://www.facebook.com/MaraSilvestreAguaComunicacao/posts/1333995646955454 
+
+(XXI) ...  estivemos hj, com o presidente da Fundação de Cultura Gustavo de Arruda Castelo, em visita apresentamos para o acompanhamento, o projeto de lançamento do Documentário  
+Las Promesseras Mara Silvestre, um projeto que desenvolve as manifestações culturais da Rota Bioceânica. 
+#ORioQueSeparaNosUne 🌅 #FestivalToroCandil 🔥🎇✨ #LasPromesseras 📽💃 #AGUACOMTV #PortoMurtinho 
+#RotaBioceânica #RutaBioceanica #Intercultural #IslaMargarita #CarmeloPeralta  #PantanalSul #AltoParaguay #GranChaco 
+https://facebook.com/story.php?story_fbid=1341596676195351&id=100010350935886
 
 
 ## Las Promesseras PAGE
@@ -383,6 +369,7 @@ Celebro que se mantenga y valore esta tradición que expresa parte del Ñande Re
 
 #MarioRubénAlvarez
 
+
 ## Coluna Fernando Soares 06fev21 
 
 ![Las Promesseras Fernando Soares 06fev2021 I](https://user-images.githubusercontent.com/76437195/107738190-91d21000-6cdc-11eb-804d-3a8469e45587.jpg)
@@ -397,6 +384,7 @@ Celebro que se mantenga y valore esta tradición que expresa parte del Ñande Re
 Fonte: ~> https://www.facebook.com/PoetaManoelDeBarros/posts/268246328037438 
 
 ![Las Promesseras 2021 02 05 Manoel de Barros](https://user-images.githubusercontent.com/76437195/107739076-70722380-6cde-11eb-931f-7c09930c90f5.jpg) 
+
 
 ## Las Promesseras Story (s)
 

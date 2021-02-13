@@ -119,6 +119,22 @@ Dessa forma, todas as festas podem ser definidas como "manifestações e regozij
 
 Fonte: Toro Candil: tradição de uma fronteira ambivalente. Giselda Paula Tedesco Giberto Luiz Alves. Interações (Campo Grande) vol.19 no.1 Campo Grande Jan./Mar. 2018 https://doi.org/10.20435/inter.v19i1.1622 
 
+## Page Las Promesseras
+
+12 fev ~> Convite do Lançamento https://www.facebook.com/LasPromesseras/posts/112857650801717 
+
+02 fev ~> Pasta I https://www.facebook.com/LasPromesseras/posts/110158111071671  
+
+12 fev ~> Pasta II https://www.facebook.com/LasPromesseras/posts/112745470812935
+
+29 jan ~> 21 Post(s) Mara Silvestre https://www.facebook.com/LasPromesseras/posts/109239334496882
+
+07 fev ~> 3 Pintores e 2 Graffiteiros https://www.facebook.com/LasPromesseras/posts/111547177599431
+
+Foto de Capa ~> https://www.facebook.com/LasPromesseras/posts/105913478162801
+21 jan ~>Foto de Perfil  https://www.facebook.com/LasPromesseras/posts/105913088162840:0  
+  
+
 ## Máscaras COVID 19 Las Promesseras 2021
 
 ![Mascara COVID19 Las Promesseras 2021](https://user-images.githubusercontent.com/76437195/107437818-f129f780-6b05-11eb-800b-3206be9bf1bf.jpg)
@@ -209,7 +225,7 @@ https://www.facebook.com/tapenandenee/posts/240487671004649
 12 fev (XIV Tape Nhande) https://www.facebook.com/laspromesseras.mara.silvestre/posts/112291447532570 
 ![Tape Nhande 2021 02 12 Mosaico](https://user-images.githubusercontent.com/76437195/107822578-b8cc2880-6d54-11eb-950d-1f59334cf080.jpg) 
 
-## Postagem Perfil Facebook Las Promesseras
+## Postagem Perfil Facebook Las Promesseras Mara Silvestre
 
 #### Las Promesseras Mara Silvestre atualizou a sua foto de capa
 
@@ -226,6 +242,7 @@ https://www.facebook.com/laspromesseras.mara.silvestre/posts/103174408444274
 #### Las Promesseras Mara Silvestre 21 Banners da Divulgação do Pré Lançamento
 
 https://www.facebook.com/LasPromesseras/posts/109239334496882
+
 
 ## Pasta 02 Doc Las Promesseras
 

@@ -379,6 +379,10 @@ Como Apoio Cultural, divulgamos as Postagens do Pré Lançamento  do #Doc Las Pr
 Banners da Divulgação do Pré Lançamento do #Doc Las Promesseras ~> https://www.facebook.com/LasPromesseras/posts/109239334496882 
 ![Las Promesseras 01 02 2021](https://user-images.githubusercontent.com/76437195/106560310-34300d80-64fd-11eb-93e2-cd7565904ee0.jpg)
 
+![Las Promesseras abcd 01](https://user-images.githubusercontent.com/76437195/107851229-d2b24d80-6dde-11eb-8b32-2da45172ee31.jpg) '
+
+![Las Promesseras abcd 02](https://user-images.githubusercontent.com/76437195/107851238-da71f200-6dde-11eb-97b1-394cb21d1a57.jpg) 
+
 Banners da Divulgação do Pré Lançamento do #Doc Las Promesseras Mara Silvestre (#AguaComTV 2020). Uma Atividade Cultural do #CorredorBioceanico do #FestivalToroCandil (Toro Candil 2021) ~> https://www.facebook.com/laspromesseras.mara.silvestre/posts/109388811156167
 ![Las Promesseras 02 02 2021](https://user-images.githubusercontent.com/76437195/106560369-4e69eb80-64fd-11eb-8c1d-380bc5d3ef60.jpg)
 

@@ -122,18 +122,25 @@ Fonte: Toro Candil: tradição de uma fronteira ambivalente. Giselda Paula Tedes
 ## Page Las Promesseras
 
 12 fev ~> Convite do Lançamento https://www.facebook.com/LasPromesseras/posts/112857650801717 
+![Las Promesseras 2021 02 12 Convite](https://user-images.githubusercontent.com/76437195/107850808-c1b40d00-6ddb-11eb-85d6-608a24d1a983.jpg) 
 
-02 fev ~> Pasta I https://www.facebook.com/LasPromesseras/posts/110158111071671  
+02 fev ~> Pasta I https://www.facebook.com/LasPromesseras/posts/110158111071671    
+![Las Promesseras 2021 II](https://user-images.githubusercontent.com/76437195/107850815-caa4de80-6ddb-11eb-9ec2-7265f7c63b9b.jpg)
 
 12 fev ~> Pasta II https://www.facebook.com/LasPromesseras/posts/112745470812935
+![Las Promesseras 2021 III](https://user-images.githubusercontent.com/76437195/107850822-d0022900-6ddb-11eb-9b9c-cf2154c4e293.jpg)
 
 29 jan ~> 21 Post(s) Mara Silvestre https://www.facebook.com/LasPromesseras/posts/109239334496882
+![Las Promesseras 2021 IV](https://user-images.githubusercontent.com/76437195/107850824-d5f80a00-6ddb-11eb-9c4e-c5fec7340285.jpg)
 
 07 fev ~> 3 Pintores e 2 Graffiteiros https://www.facebook.com/LasPromesseras/posts/111547177599431
+![Las Promesseras 2021 V](https://user-images.githubusercontent.com/76437195/107850829-dbedeb00-6ddb-11eb-96bb-0667fc803051.jpg) 
 
 Foto de Capa ~> https://www.facebook.com/LasPromesseras/posts/105913478162801
-21 jan ~>Foto de Perfil  https://www.facebook.com/LasPromesseras/posts/105913088162840:0  
-  
+21 jan ~>Foto de Perfil  https://www.facebook.com/LasPromesseras/posts/105913088162840:0  
+![Las Promesseras 2021 VI](https://user-images.githubusercontent.com/76437195/107850832-e314f900-6ddb-11eb-8644-48a7a753660d.jpg)
+![Las Promesseras 2021 VII](https://user-images.githubusercontent.com/76437195/107850837-ead49d80-6ddb-11eb-9a78-966a853c5e43.jpg)
+
 
 ## Máscaras COVID 19 Las Promesseras 2021
 

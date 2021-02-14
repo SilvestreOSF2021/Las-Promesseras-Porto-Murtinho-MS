@@ -121,6 +121,27 @@ Dessa forma, todas as festas podem ser definidas como "manifestações e regozij
 
 Fonte: Toro Candil: tradição de uma fronteira ambivalente. Giselda Paula Tedesco Giberto Luiz Alves. Interações (Campo Grande) vol.19 no.1 Campo Grande Jan./Mar. 2018 https://doi.org/10.20435/inter.v19i1.1622 
 
+## Souvenirs Las Promesseras 
+
+![Mascara COVID19 Las Promesseras 2021 Oficial](https://user-images.githubusercontent.com/76437195/107890673-8e16d700-6ef0-11eb-96b4-ab1c330a198f.jpg)
+
+![Mascara COVID19 Las Promesseras 2021 Devotos e Apoiadores](https://user-images.githubusercontent.com/76437195/107890678-94a54e80-6ef0-11eb-8e63-4dc5ef601f6b.jpg)
+
+![Las Promesseras Camiseta II SmartPhone WEB](https://user-images.githubusercontent.com/76437195/107890570-147ee900-6ef0-11eb-9110-1453d5b85c8a.jpg)
+
+![Las Promesseras Camiseta I Logo WEB](https://user-images.githubusercontent.com/76437195/107890562-0c26ae00-6ef0-11eb-877c-f8e8822ac80c.jpg) 
+
+![Las Promesseras Camiseta III SmartPhones WEB](https://user-images.githubusercontent.com/76437195/107890578-1c3e8d80-6ef0-11eb-832c-033b6bc79c7a.jpg)
+
+![Las Promesseras Moldura 04 Black](https://user-images.githubusercontent.com/76437195/107890587-26f92280-6ef0-11eb-8a47-483029b5cadd.jpg)
+
+![Las Promesseras Moldura 03 Black](https://user-images.githubusercontent.com/76437195/107890603-2eb8c700-6ef0-11eb-85b5-4b43bedee482.jpg)
+
+![Las Promesseras Moldura 02 White](https://user-images.githubusercontent.com/76437195/107890640-5e67cf00-6ef0-11eb-87e9-1a26163c1417.jpg)
+
+![Las Promesseras Moldura 01](https://user-images.githubusercontent.com/76437195/107890647-66c00a00-6ef0-11eb-95b9-81ddcfb4fc4e.jpg)
+
+
 ## Page Las Promesseras
 
 12 fev ~> Convite do Lançamento https://www.facebook.com/LasPromesseras/posts/112857650801717 
@@ -142,27 +163,6 @@ Foto de Capa ~> https://www.facebook.com/LasPromesseras/posts/105913478162801
 21 jan ~>Foto de Perfil  https://www.facebook.com/LasPromesseras/posts/105913088162840:0  
 ![Las Promesseras 2021 VI](https://user-images.githubusercontent.com/76437195/107850832-e314f900-6ddb-11eb-8644-48a7a753660d.jpg)
 ![Las Promesseras 2021 VII](https://user-images.githubusercontent.com/76437195/107850837-ead49d80-6ddb-11eb-9a78-966a853c5e43.jpg)
-
-
-## Máscaras COVID 19 Las Promesseras 2021
-
-![Mascara COVID19 Las Promesseras 2021](https://user-images.githubusercontent.com/76437195/107437818-f129f780-6b05-11eb-800b-3206be9bf1bf.jpg)
-
-![Mascara COVID19 Las Promesseras 2021 II](https://user-images.githubusercontent.com/76437195/107437849-fbe48c80-6b05-11eb-962e-a7899a69e1a2.jpg)
-
-## Camisetas Oficiais I, II e III
-
-#### Camiseta Oficial I
-
-![Las Promesseras Camiseta Oficial I SmartPhones WEB](https://user-images.githubusercontent.com/76437195/107515667-b49be180-6b81-11eb-8d84-beb81d3072a6.jpg) 
-
-#### Camiseta Oficial II
-
-![Las Promesseras Camiseta Oficial II Banner Oficial WEB](https://user-images.githubusercontent.com/76437195/107515710-c1b8d080-6b81-11eb-9192-1a2f833d8c6e.jpg)
-
-#### Camiseta Oficial III
-
-![Las Promesseras Camiseta Oficial III Frente e Verso WEB](https://user-images.githubusercontent.com/76437195/107515739-caa9a200-6b81-11eb-9e2b-6c660b718d7d.jpg)
 
 
 ## Arte Visuais e Grafiteiros

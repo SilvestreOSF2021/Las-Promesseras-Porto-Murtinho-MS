@@ -419,6 +419,14 @@ Fonte: ~> https://www.facebook.com/PoetaManoelDeBarros/posts/268246328037438
 
 ![Las Promesseras Story 04](https://user-images.githubusercontent.com/76437195/107756051-023b5a00-6cfa-11eb-97cd-702187f17188.jpg)
 
+[Las Promesseras Story 05]
+
+[Las Promesseras Story 06]
+
+[Las Promesseras Story 07]
+
+[Las Promesseras Story 08]
+
 ## Las Promesseras
 ## Ficha Técnica
 

@@ -4,6 +4,8 @@
 
 ![Las Promesseras 2021 02 04 Convite](https://user-images.githubusercontent.com/76437195/107739507-67ce1d00-6cdf-11eb-92b7-b25017703bbe.jpg)
 
+# Banner III 
+
 O Toro Candil é prática cultural singular em Porto Murtinho, Mato Grosso do Sul. Constitui-se paródia das corridas de toros ou das toradas espanholas. A chegada do Toro é anunciada pela Pelota Tata. Ao Toro, seguem-se os Mascaritas, os toureiros. É realizado como promessa a Nossa Senhora de Caacupé. É mantido por paraguaios e seus descendentes por motivo de fé e devoção. Acontece mais comumente na fronteira, região permeada por práticas culturais de origem espanhola e guarani que se misturaram, desenvolveram-se e transformaram-se. Em sua singularidade, está associada, também, à materialidade engendrada pela pecuária.
 
 Essa prática cultural expressa uma sobrevivência secular, preservada no âmago das relações sociais. Compartilhada pelos residentes em Porto Murtinho, marca a presença do trabalhador paraguaio no sudoeste de Mato Grosso do Sul, desde a sua designação em língua espanhola. Das várias práticas culturais conhecidas no Brasil e que envolvem a pecuária bovina, nenhuma se assemelha ao Toro Candil.

@@ -62,7 +62,6 @@ Toro Candil (#ToroCandil) #oRioQueSeparaNosUne Mara Silvestre #FestivalToroCandi
 
 "A tradição das #Promesseras representa um forte laço cultural entre Brasil e Paraguai. A irmandade entre os dois países permanece viva e abraçada pelo povo fronteiriço. A #Fé das senhoras que guardaram esse ritual é um tesouro das duas nações." Ricardo Câmara (Doutor em Humanidades) Banners da Divulgação do Pré Lançamento do #Doc Las Promesseras Mara Silvestre (#AguaComTV 2020). Uma Atividade Cultural do #CorredorBioceanico do #FestivalToroCandil #oRioQueSeparaNosUne #MaraSilvestre #ToroCandil #LasPromesseras #PortoMurtinho #CarmeloPeralta #PantanalSUL #ChacoParaguayo #Pantanal #Chaco #RioParaguay ~> https://www.facebook.com/LasPromesseras/posts/110158111071671 
 
-
 ![Las Promesseras 02 02 2021 01](https://user-images.githubusercontent.com/76437195/106561889-e49f1100-64ff-11eb-8aa8-e9e492f3f649.jpg)
 
 ![Las Promesseras 02 02 2021 02](https://user-images.githubusercontent.com/76437195/106561917-eec10f80-64ff-11eb-9b8e-6175aa7b8a72.jpg)
@@ -122,6 +121,18 @@ Ao longo dos séculos foram associados a elas outros elementos, tais como padroe
 Dessa forma, todas as festas podem ser definidas como "manifestações e regozijo do povo para comemorar um evento de origem histórica e/ou mística" e, "além de estarem associadas a uma origem religiosa, exprimem, também, o ritmo das estações, sob a conotação da morte e ressurreição de um deus - a natureza" (MOURÃO, 2002, p. 44). (...)
 
 Fonte: Toro Candil: tradição de uma fronteira ambivalente. Giselda Paula Tedesco Giberto Luiz Alves. Interações (Campo Grande) vol.19 no.1 Campo Grande Jan./Mar. 2018 https://doi.org/10.20435/inter.v19i1.1622 
+
+## Pasta III
+
+![Las Promesseras 2021 III 01 Convite](https://user-images.githubusercontent.com/76437195/108278334-42169d00-7151-11eb-8b0e-ed98ba463cad.jpg)
+
+![Las Promesseras 2021 III 02 SmartPhones](https://user-images.githubusercontent.com/76437195/108278352-49d64180-7151-11eb-8be2-2a172e099361.jpg)
+
+![Las Promesseras 2021 III 03 RTVE Promessera Esmeralda](https://user-images.githubusercontent.com/76437195/108278371-52c71300-7151-11eb-9637-16d2d432cf9c.jpg)
+
+![Las Promesseras 2021 III 04 RTVE Promessera Capela](https://user-images.githubusercontent.com/76437195/108278391-59558a80-7151-11eb-952f-966015acacd1.jpg)
+
+![Las Promesseras 2021 III 05 Na Cadeira do DJ](https://user-images.githubusercontent.com/76437195/108278409-607c9880-7151-11eb-8a17-29e0420940ee.jpg)
 
 ## Souvenirs Las Promesseras 
 

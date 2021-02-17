@@ -436,7 +436,7 @@ Fonte: ~> https://www.facebook.com/PoetaManoelDeBarros/posts/268246328037438
 
 ![Las Promesseras Story 05](https://user-images.githubusercontent.com/76437195/107884872-9578b900-6ecd-11eb-9385-26c2c6795329.jpg)
 
-[Las Promesseras Story 06]
+![Las Promesseras Story 06](https://user-images.githubusercontent.com/76437195/108279435-fd8c0100-7152-11eb-9505-74fcfc969fb2.jpg)
 
 [Las Promesseras Story 07]
 

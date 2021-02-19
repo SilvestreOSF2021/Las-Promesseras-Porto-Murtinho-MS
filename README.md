@@ -442,6 +442,8 @@ Fonte: ~> https://www.facebook.com/PoetaManoelDeBarros/posts/268246328037438
 
 [Las Promesseras Story 08]
 
+## Na Cadeira do DJ #RTVE #PortalDaEducativa
+
 ## Arte e MKTdigital
 ## Orlando Silvestre
 

@@ -444,10 +444,14 @@ Fonte: ~> https://www.facebook.com/PoetaManoelDeBarros/posts/268246328037438
 
 ## Na Cadeira do DJ #RTVE #PortalDaEducativa
 
+
+
 ## Arte e MKTdigital
 ## Orlando Silvestre
 
 ![Camiseta Las Promesseras 4 SmartPhones WEB](https://user-images.githubusercontent.com/76437195/107979262-a809f580-6f94-11eb-9ab5-ff3dc6761321.jpg) 
+
+## Teaser 19 Fev 2021
 
 
 ## Las Promesseras

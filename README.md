@@ -449,10 +449,10 @@ Fonte: ~> https://www.facebook.com/PoetaManoelDeBarros/posts/268246328037438
 ## Arte e MKTdigital
 ## Orlando Silvestre
 
-
-#Souvenirs 
-
 ![Camiseta Las Promesseras 4 SmartPhones WEB](https://user-images.githubusercontent.com/76437195/107979262-a809f580-6f94-11eb-9ab5-ff3dc6761321.jpg) 
+
+
+## Souvenirs 
 
 ![Las Promesseras 2021 III Sponsor Gold Silver Bronze Platinum](https://user-images.githubusercontent.com/76437195/108630167-d75baf00-7439-11eb-8e4c-ae032da31099.jpg)
 
@@ -492,4 +492,29 @@ Fonte: ~> https://www.facebook.com/PoetaManoelDeBarros/posts/268246328037438
 
 ![Las Promesseras A3 Of 2021 013 Cast Ficha Tecnica](https://user-images.githubusercontent.com/76437195/104878538-87696400-5932-11eb-872f-d0118b29b685.jpg)  
 
-![Mascara COVID19 Las Promesseras 2021 III](https://user-images.githubusercontent.com/76437195/108630763-d710e300-743c-11eb-86b9-12aec0281652.jpg)
+![Mascara COVID19 Las Promesseras 2021 III](https://user-images.githubusercontent.com/76437195/108630763-d710e300-743c-11eb-86b9-12aec0281652.jpg) 
+
+
+## Souvenirs Oficiais Las Promesseras
+
+![LasPromesseras Souvenir Camisetas](https://user-images.githubusercontent.com/76437195/108636789-f835fb80-745d-11eb-8194-fa314f375257.jpg)
+
+![LasPromesseras Souvenir Mascaras](https://user-images.githubusercontent.com/76437195/108636794-ff5d0980-745d-11eb-8a14-59be5d378456.jpg)
+
+
+![Las Promesseras Mosaico I](https://user-images.githubusercontent.com/76437195/108636859-5531b180-745e-11eb-858b-13983be69a94.jpg)
+
+![Las Promesseras Mosaico II](https://user-images.githubusercontent.com/76437195/108636882-5c58bf80-745e-11eb-90d5-60cb3536542d.jpg)
+
+![Las Promesseras Mosaico III](https://user-images.githubusercontent.com/76437195/108636887-637fcd80-745e-11eb-8d7b-337b00635848.jpg)
+
+![Las Promesseras Mosaico IV](https://user-images.githubusercontent.com/76437195/108636894-71cde980-745e-11eb-8098-f02ebc8973d5.jpg)
+
+![Las Promesseras Mosaico V](https://user-images.githubusercontent.com/76437195/108636899-7a262480-745e-11eb-909a-dd3cccca4be5.jpg)
+
+![Las Promesseras 2021 III 09 Mosaico Pasta I](https://user-images.githubusercontent.com/76437195/108636906-8316f600-745e-11eb-8a21-a25dce59a955.jpg)
+
+![Las Promesseras 2021 III 10 Mosaico Pasta II](https://user-images.githubusercontent.com/76437195/108636912-8ca05e00-745e-11eb-826c-3176205c9f82.jpg)
+
+![Las Promesseras 2021 III 07 Edson Moraes](https://user-images.githubusercontent.com/76437195/108636919-a04bc480-745e-11eb-85b0-6e22d19094c9.jpg) 
+

@@ -490,4 +490,6 @@ Fonte: ~> https://www.facebook.com/PoetaManoelDeBarros/posts/268246328037438
 ## Las Promesseras
 ## Ficha Técnica
 
-![Las Promesseras A3 Of 2021 013 Cast Ficha Tecnica](https://user-images.githubusercontent.com/76437195/104878538-87696400-5932-11eb-872f-d0118b29b685.jpg) 
+![Las Promesseras A3 Of 2021 013 Cast Ficha Tecnica](https://user-images.githubusercontent.com/76437195/104878538-87696400-5932-11eb-872f-d0118b29b685.jpg)  
+
+![Mascara COVID19 Las Promesseras 2021 III](https://user-images.githubusercontent.com/76437195/108630763-d710e300-743c-11eb-86b9-12aec0281652.jpg)

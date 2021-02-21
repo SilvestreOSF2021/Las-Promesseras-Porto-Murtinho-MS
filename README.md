@@ -449,8 +449,41 @@ Fonte: ~> https://www.facebook.com/PoetaManoelDeBarros/posts/268246328037438
 ## Arte e MKTdigital
 ## Orlando Silvestre
 
+
+#Souvenirs 
+
 ![Camiseta Las Promesseras 4 SmartPhones WEB](https://user-images.githubusercontent.com/76437195/107979262-a809f580-6f94-11eb-9ab5-ff3dc6761321.jpg) 
 
+![Las Promesseras 2021 III Sponsor Gold Silver Bronze Platinum](https://user-images.githubusercontent.com/76437195/108630167-d75baf00-7439-11eb-8e4c-ae032da31099.jpg)
+
+![Las Promesseras 2021 III Apoio Cultural Tembiu He](https://user-images.githubusercontent.com/76437195/108630151-c4e17580-7439-11eb-816e-60dc326eaf35.jpg)
+
+![Las Promesseras 2021 III Produto Mascara Orlandinho Myriane](https://user-images.githubusercontent.com/76437195/108630155-cad75680-7439-11eb-96c3-096019e7d4b3.jpg)
+
+![Las Promesseras 2021 III Produto Molduras](https://user-images.githubusercontent.com/76437195/108630160-d034a100-7439-11eb-9f65-fdedf58620e6.jpg)
+
+![Las Promesseras 2021 III Sovenir Regalo Oficial](https://user-images.githubusercontent.com/76437195/108630185-e6426180-7439-11eb-80fa-5c61c629cc12.jpg)
+
+
+## Futura
+
+![Las Promesseras 2021 III Sovenir Moldura Marcus Vinicius](https://user-images.githubusercontent.com/76437195/108630180-e0e51700-7439-11eb-9e10-9e0d29154a27.jpg)
+
+![Las Promesseras Futura 001 21 fev 2021](https://user-images.githubusercontent.com/76437195/108630190-f22e2380-7439-11eb-81c4-f5ab464a8c89.jpg) 
+
+![Las Promesseras Futura 002 21 fev 2021](https://user-images.githubusercontent.com/76437195/108630196-fc502200-7439-11eb-9dc3-85fbe39bfeb4.jpg)
+
+
+## Trilhos Digitais
+
+![Trilhos Digitais Logo WEB](https://user-images.githubusercontent.com/76437195/108630206-0a9e3e00-743a-11eb-9d5e-184ecabee4a1.jpg)
+
+
+## Las Promesseras Mosaico 5 Capas 
+
+![Las Promesseras 2021 III Banners de Capa do Perfil com Mara Silvestre](https://user-images.githubusercontent.com/76437195/108630228-21449500-743a-11eb-873f-864d7dd0d941.jpg)
+ 
+ 
 ## Teaser 19 Fev 2021
 
 

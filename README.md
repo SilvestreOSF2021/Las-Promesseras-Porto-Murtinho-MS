@@ -442,7 +442,14 @@ Fonte: ~> https://www.facebook.com/PoetaManoelDeBarros/posts/268246328037438
 
 [Las Promesseras Story 08]
 
-## Na Cadeira do DJ #RTVE #PortalDaEducativa
+## Na Cadeira do DJ #RTVE #PortalDaEducativa 
+
+## PROMESSAS DA FRONTEIRA 
+#CorreioB Correio Do Estado 
+Ano 68 Edição n. 21.418 22fev2021
+#LasPromesseras no #CorreioDoEstado
+
+![Las Promesseras 2021 02 22 Correio do Estado Caderno B Promessas na Fronteira](https://user-images.githubusercontent.com/76437195/108759983-73adb080-7523-11eb-8c5d-8e603569c34d.jpg)
 
 ## Apoio Cultural 
 

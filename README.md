@@ -525,3 +525,7 @@ Ano 68 Edição n. 21.418 22fev2021
 
 ![Las Promesseras 2021 III 07 Edson Moraes](https://user-images.githubusercontent.com/76437195/108636919-a04bc480-745e-11eb-85b0-6e22d19094c9.jpg) 
 
+![Las Promesseras 2021 02 23 Campo Grande NEWS](https://user-images.githubusercontent.com/76437195/108922971-5b669000-760e-11eb-8c91-5bd6481c7b71.jpg)
+
+![Las Promesseras 2021 02 22 O Estado onLine](https://user-images.githubusercontent.com/76437195/108923207-c6b06200-760e-11eb-841e-6fd17b5c0159.jpg)
+

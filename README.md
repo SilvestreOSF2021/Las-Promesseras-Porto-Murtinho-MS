@@ -447,9 +447,12 @@ Fonte: ~> https://www.facebook.com/PoetaManoelDeBarros/posts/268246328037438
 ## PROMESSAS DA FRONTEIRA 
 #CorreioB Correio Do Estado 
 Ano 68 Edição n. 21.418 22fev2021
-#LasPromesseras no #CorreioDoEstado
+#LasPromesseras no #CorreioDoEstado 
 
 ![Las Promesseras 2021 02 22 Correio do Estado Caderno B Promessas na Fronteira](https://user-images.githubusercontent.com/76437195/108759983-73adb080-7523-11eb-8c5d-8e603569c34d.jpg)
+
+![CorreioB 22 02 2021 Logos Promessas na Fronteira LasPromesseras](https://user-images.githubusercontent.com/76437195/109016882-fdc55880-768c-11eb-8533-08d944e64487.jpg)
+
 
 ## Apoio Cultural 
 

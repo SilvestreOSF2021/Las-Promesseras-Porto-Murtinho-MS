@@ -532,3 +532,4 @@ Ano 68 Edição n. 21.418 22fev2021
 
 ![Las Promesseras 2021 02 22 O Estado onLine](https://user-images.githubusercontent.com/76437195/108923207-c6b06200-760e-11eb-841e-6fd17b5c0159.jpg)
 
+## Lado B (@cgrnews)
